@@ -1,0 +1,14 @@
+# Summary of What happens to people in solitary confinement | Laura Rovner
+
+Laura Rovner explains the reality of solitary confinement and argues that it amounts to torture. Tens of thousands of prisoners undergo it daily, spending up to 23 hours a day in a small cell. This practice contradicts the fundamental values of the justice system and leads to devastating effects on prisoners' mental and emotional health, as well as a prolonged loss of dignity and identity. Maintaining secrecy is a hallmark of places that torture, yet the American criminal justice system is supposed to be transparent. The lack of transparency and accountability in the prison system can lead to torture and other abuses in solitary confinement. She argues that citizens have an obligation to demand greater oversight and reform to ensure that the prison system upholds the dignity of all human beings.
+
+Detail Summary: 
+00:00:00
+In this section, Laura Rovner explains the reality of solitary confinement, which she believes amounts to torture. Often used as a form of punishment, tens of thousands of prisoners undergo it daily, with each man in ADX, the only supermax prison in the US, spending 23 hours a day in a cell the size of a bathroom. Laura argues that this practice contradicts the fundamental values of the justice system, and leads to devastating effects on prisoners' mental and emotional health, as well as prolonged loss of dignity and identity. Some inmates have spent the majority of their lives in isolation, with no hope of release in sight, such as Tommy Silverstein, who has been in solitary confinement for 35 years.
+
+00:05:00
+In this section, the speaker explains how prolonged isolation leads to social death and the harmful effects of adjustment to the experience of long-term isolation. International human rights laws prohibit the use of long-term solitary confinement and have called on governments to ban it for more than 15 days. However, it still happens in the US. ADX, which is a black site on American soil, is a notoriously secretive prison that has only had one visit by human rights organizations in the 25 years since it opened, and journalists are routinely denied entry. Maintaining secrecy is a hallmark of places that torture, yet the American criminal justice system is supposed to be transparent.
+
+00:10:00
+In this section, the speaker discusses the lack of transparency and accountability in the prison system, which can lead to torture and other abuses in solitary confinement. She argues that the public has an obligation to know what happens in prisons and to demand greater oversight and reform. By shedding light on atrocities such as those committed in the ADX, citizens can help effect change and ensure that the prison system upholds the dignity of all human beings.
+

@@ -1,0 +1,14 @@
+# Summary of Madeleine Albright: On being a woman and a diplomat
+
+In a video titled "Madeleine Albright: On being a woman and a diplomat," the former Secretary of State reflects on her experiences as a female politician. Albright discusses how her famous pin collection began as a way to make light of sexist comments, and reflects on the scrutiny female politicians face about their appearance. She also emphasizes the importance of women's issues in foreign policy, arguing that societies benefit from empowering women politically and economically. Albright highlights the need for a critical mass of women in foreign policy positions and urges women to support each other in pursuing their careers.
+
+Detail Summary: 
+00:00:00
+In this section, Madeleine Albright discusses how her famous pin collection began, as a way to make light of being compared to an "unparalleled serpent" by Saddam Hussein. The conversation then shifts to the scrutiny that female politicians often face about their appearance, and Albright remarks that no man would get criticized for their clothing choices in the same way. Albright also reflects on being the first female Secretary of State and how she learned to balance her role as a mother and grandmother with being a tough diplomat. She notes that there were advantages to being a woman in her position, such as being better at personal relationships and being able to tell it like it is when necessary.
+
+00:05:00
+In this section, Madeleine Albright discusses the importance of women's issues in American foreign policy and the pushback she received from some people when she made it a central tenant. She argues that societies are better off when women are empowered politically and economically, which leads to benefits like better education and greater economic prosperity. Albright recalls the wars in the Balkans and how women were the main victims, motivating her to lobby on behalf of women's issues by setting up a caucus, G7, dedicated to it. Albright believes when there are more women at the negotiating tables, there is an attempt to develop empathy and understanding, leading to better resolutions and a tone shift in conversations.
+
+00:10:00
+In this section, Madeleine Albright discusses the importance of having a critical mass of women in foreign policy positions. As the former Secretary of State, she recalls moments when her male colleagues didn't take her seriously until a fellow female foreign minister spoke up. She believes that having more women in these positions will help support each other when making important budget decisions and creating political voices. Albright stresses the importance of women helping each other and not making each other feel guilty for pursuing their careers. She ends with her motto that there is a special place in hell for women who don't help each other.
+

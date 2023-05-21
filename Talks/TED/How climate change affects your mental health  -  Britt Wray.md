@@ -1,0 +1,11 @@
+# Summary of How climate change affects your mental health | Britt Wray
+
+Britt Wray explains in her talk how climate change can have significant impacts on mental health. Climate disasters can cause trauma, strained relationships, substance abuse, and loss of control, while anxiety, grief, and depression are increasing as climate change worsens. Furthermore, she discusses the topic of whether it is ethical to have children in a world affected by climate change, an issue that has led to the BirthStrike movement. Wray emphasizes the importance of prioritizing mental health in climate change policies and solutions, as it is an integral part of individual well-being. She says that addressing the psychological impacts of climate change requires funding, equity and care ethics, and widespread awareness.
+
+Detail Summary: 
+00:00:00
+In this section, Britt Wray discusses how climate change can impact mental health. She notes that climate disasters can lead to shock, trauma, strained relationships, substance abuse, and loss of personal identity and control. Moreover, mental health data from northern communities and the American Psychological Association state that anxiety, grief, and depression are increasing as climate change worsens. Wray also delves into the phenomenon of whether it is ethical to bring children into a world affected by climate change, with some people even opting to join movements like BirthStrike to avoid having children altogether. Ultimately, Wray urges policies and solutions addressing climate change to recognize the mental, social, and spiritual well-being of individuals.
+
+00:05:00
+In this section, the speaker discusses how climate change exacerbates the pre-existing stresses and marginalization faced by already marginalized communities. Climate change has become a leading indicator for the decrease in the rate of informed women deciding to have children. The fear of climate change and its adverse impacts is leading to pre-traumatic stress and therapy. The psychological impacts of the climate crisis need to be an integral part of any climate change strategy, requiring funding, ethics of equity and care, and widespread awareness. Mental health should not be treated as an afterthought, because there is no rug large enough to sweep it under.
+

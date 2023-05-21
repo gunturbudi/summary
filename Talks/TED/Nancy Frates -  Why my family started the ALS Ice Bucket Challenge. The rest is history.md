@@ -1,0 +1,17 @@
+# Summary of Nancy Frates: Why my family started the ALS Ice Bucket Challenge. The rest is history
+
+Nancy Frates explains how she and her family started the ALS Ice Bucket Challenge, which raised $125 million for ALS research. The challenge began with her son Pete, who was diagnosed with ALS and inspired his family to take action. The Frates family formed a team and started advocating for ALS, noticing a lack of collaboration between scientific groups. Pete's article, written with eye gaze technology, helped the challenge gain momentum and become a global sensation. The challenge led to raised awareness and funding for ALS research and new treatments. Nancy encourages people to choose positivity and proactivity in their daily lives and to continue supporting the fight against ALS.
+
+Detail Summary: 
+00:00:00
+In this section, Nancy Frates shares the story of how her family started the ALS Ice Bucket Challenge, which raised $125 million for ALS research. It started with her son, Pete, who had played baseball in Europe and was now selling group insurance but felt unfulfilled. When he got hit by a fastball and his wrist went limp, he went to the doctor to find out what was wrong and was diagnosed with ALS. Nancy and her family were shocked, as they didn't even know what ALS was, and were devastated to learn there was no cure. But instead of wallowing, Pete set a vision and talked to his family like they were his new team, saying that they were going to do something to raise awareness and funds for ALS research.
+
+00:05:00
+In this section, Nancy Frates shares how her family started the Team Frate Train after being given a directive that they need to move the needle and get ALS in front of philanthropists like Bill Gates. The team consisted of their family members and Pete's friends and inspired colleagues. Even after Pete was diagnosed with ALS, he continued to be an advocate for ALS, attending a research summit where Nancy noticed that there was a lack of collaboration between the scientific groups. Two years ago, Pete became completely paralyzed and now uses eye gaze technology to communicate. It was his article written with the eye gaze technology that inspired the ALS Ice Bucket Challenge.
+
+00:10:00
+In this section, Nancy Frates, the woman behind the ALS Ice Bucket Challenge, recounts how the challenge gained momentum and became a global sensation. Initially, the challenge was a small, fun activity among friends and family to help raise awareness and funds for ALS. However, as more people participated in the challenge and shared it on social media, it quickly gained widespread attention, with celebrities, politicians, and people all over the world joining in. The challenge eventually led to raised awareness and funding for ALS research, leading to clinical trials and new treatments. Nancy encourages people to choose positivity and proactivity in their daily lives and to continue supporting the fight against ALS.
+
+00:15:00
+In this section, Nancy Frates reflects on the mental toughness required by the person at the center of ALS Ice Bucket Challenge, as exemplified by her son Pete's enduring positivity and commitment to raising awareness of the disease. She urges listeners to find their inner "mother bear" and take action against unacceptable situations. Finally, she expresses gratitude for the gifts her son has given her, including a sense of purpose and the joy of being a grandmother.
+

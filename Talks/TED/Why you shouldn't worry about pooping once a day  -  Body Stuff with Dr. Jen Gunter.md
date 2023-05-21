@@ -1,0 +1,8 @@
+# Summary of Why you shouldn't worry about pooping once a day | Body Stuff with Dr. Jen Gunter
+
+Dr. Jen Gunter dispels the myth that one bowel movement per day is necessary, explaining that pooping anywhere from three times a day to three times a week is normal. The process of digestion and elimination is complex and takes anywhere from 24 to 120 hours. Gunter stresses that fiber is critical for good digestive health, as it slows down digestion, keeps stool soft, feeds gut bacteria and has many other benefits. Unfortunately, most Americans don't get enough fiber, with the recommended daily intake being 28 grams and the average person getting only 15 grams. To promote good digestive health, Gunter recommends fiber-rich foods such as fruits, vegetables, whole grains, legumes, and nuts.
+
+Detail Summary: 
+00:00:00
+In this section, Dr. Jen Gunter talks about how often people should poop and how fiber is critical for good digestive health. She explains that pooping ranges from three times a day to three times a week is normal, instead of the common belief that one bowel movement per day is necessary. The process of digestion and elimination involves more than ten organs and typically takes between 24 and 120 hours for healthy people. She emphasizes the importance of fiber in the diet, which slows down digestion, keeps stool soft, and feeds gut bacteria, among other benefits. Most Americans get only 15 grams of fiber per day, far below the recommended 28 grams, and Dr. Gunter recommends fiber-rich foods such as fruits, vegetables, whole grain, legumes, and nuts to promote good digestive health.
+

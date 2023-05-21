@@ -1,0 +1,17 @@
+# Summary of "A Seat at the Table" Isn't the Solution for Gender Equity | Lilly Singh | TED
+
+In her TED talk, Lilly Singh discusses her personal experiences and challenges as a woman in the entertainment industry. She emphasizes that while the desire for women to have a seat at the table is important, the table was never built for women in the first place. Singh suggests building better tables and creating more seats for women, rather than making them compete for the few spots available. She also stresses the importance of valuing potential over proof and investing in cultural change to create a world where future generations of girls can thrive. Ultimately, Singh calls for a world where women are not simply grateful to sit at the table, but are paid to be there and contribute to diverse, profitable teams and executive boards.
+
+Detail Summary: 
+00:00:00
+In this section, Lilly Singh shares her personal experience of being born female and how that was considered a disappointment in her culture. She also talks about the common desire for girls to have a seat at the table and be treated equally, a message that is often repeated in motivational posters and business cards. Lilly's mission was to prove herself and feel like she was enough, which led her to create a YouTube channel and establish her career. She talks about the moment when her grandfather finally approved of her and the feeling of finally having a seat at the table alongside men in the industry. Her grandfather's approval was more important than the millions of subscribers and views on her channel because she managed to change one view and challenge entrenched gender beliefs.
+
+00:05:00
+In this section, Lilly Singh talks about how her attempts to bring up gender inequality in conversations about money, starting critical conversations, and being her authentic self in her late-night show were met with discomfort, negative reactions, and feedback from gatekeepers of the industry, including in her most recent show, "A Little Late with Lilly Singh," that was severely underfunded and understaffed, leading to a lack of timeliness, creative constraints, and higher stress levels for her. Despite trying to bring timely content, she received feedback to "tone it down" and "not overindex on the South Asian stuff."
+
+00:10:00
+In this section, Lilly Singh talks about her experiences trying to have a seat at the table and the fact that the table was never built for women in the first place. She offers a solution: build better tables. One of her guidelines is to not weaponize gratitude, pointing out that women should not be grateful to sit at the table but should be paid to sit there, especially if they have largely helped build it. She also encourages investing in potential and valuing it over proof, knowing that cultural change takes time and money.
+
+00:15:00
+In this section, Lilly Singh emphasizes the need to make space for women and create more seats at the table, instead of making them compete with one another for one or two spots. She highlights the benefits of gender and racial diversity on teams and executive boards for higher profitability in corporations. Additionally, Singh addresses the importance of upgrading the table talk and including women in media coverage of issues that impact them. She stresses that by working towards gender equity, we are creating a world where future generations of girls can have equitable access and opportunity to thrive.
+

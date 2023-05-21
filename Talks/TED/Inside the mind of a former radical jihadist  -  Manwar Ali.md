@@ -1,0 +1,17 @@
+# Summary of Inside the mind of a former radical jihadist | Manwar Ali
+
+Manwar Ali, a former radical jihadist, shares his experience and how he came to understand the true meaning of jihad. He believed that violent jihad was noble, but he now knows that true jihad refers to positive transformation through learning, wisdom, and remembrance of God. He reflects on his past experiences and how he witnessed young men being exploited and manipulated by their leaders, causing them to kill each other in the name of jihad. He advocates for a rejection of dogmatic authority and a cultivation of love, goodness, beauty, and truth in oneself and in others. For Ali, this is the true meaning of jihad.
+
+Detail Summary: 
+00:00:00
+In this section, a former radical jihadist named Manwar Ali recounts his past beliefs and how he came to understand the true meaning of jihad. He believed that violent jihad was noble, chivalrous, and the best way to help others who were suffering. However, he now knows that true jihad means to strive to one's utmost, including exerting oneself spiritually, and refers to positive transformation through learning, wisdom, and remembrance of God. Although jihad may take the form of fighting sometimes, there are strict conditions and rules to it, and violent jihad is never permissible on earth. In his early life, Manwar Ali witnessed war, destitution, and violence that led him to have a deep desire to right wrongs and help the victims of oppression.
+
+00:05:00
+In this section, the former radical jihadist, Manwar Ali, shares his experience of how he became radicalized and involved in violent jihad, including fighting in Afghanistan, Kashmir, Burma, and recruiting others to the cause. He admits to confusing true jihad with the perversion presented by fascist Islamists who use the idea of jihad to justify their lust for power and control. However, his line of questioning started when he came across a 15-year-old Afghan boy named Abdullah, who died a violent death due to an unexploded mortar shell that Ali had deposited in a makeshift lab. This incident raised questions for Ali about the purpose of the war and the loss of innocent lives, which eventually led to his disillusionment with violent jihad.
+
+00:10:00
+In this section of the video, Manwar Ali reflects on his past experiences as a radical jihadist supporting wars in countries like Afghanistan, Chechnya, and the Philippines. He describes how he witnessed young men being exploited and manipulated by their leaders, causing them to kill each other in the name of jihad. This disillusioned him and made him question the virtues of violent jihadism. He realized that he had been blinded by a cause and failed to develop a virtuous character. Over time, he learned to question how he knew what he knew and to embrace doubt. He believes that those who engage in violent jihadism can change by filling their hearts with human values that heal.
+
+00:15:00
+In this section, Manwar Ali explains how he was able to overcome his radical jihadist beliefs through wide reading, self-knowledge, and political awareness. He rejects the false and unjust worldview of Islamists and recognizes the importance of understanding the impact of his actions on others. He advocates for a rejection of dogmatic authority and a cultivation of love, goodness, beauty, and truth in oneself and in others. For Ali, this is the true meaning of jihad.
+

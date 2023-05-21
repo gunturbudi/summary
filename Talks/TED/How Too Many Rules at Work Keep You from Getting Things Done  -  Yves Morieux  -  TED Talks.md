@@ -1,0 +1,17 @@
+# Summary of How Too Many Rules at Work Keep You from Getting Things Done | Yves Morieux | TED Talks
+
+In his TED Talk, consultant Yves Morieux argues that the focus on clarity, measurement, and accountability has become counterproductive for human efforts in the workplace. He uses the analogy of a relay race to explain how too many rules and a lack of cooperation can cause the slowest team to win. He explains that organizations need to simplify structures, focus on fuzziness instead of clarity, and assess cooperation rather than speed and quantitative metrics to make it individually useful for people to cooperate. Morieux also highlights the role of leaders and managers in creating a culture of cooperation and the importance of their influence on the future of companies, organizations, and societies.
+
+Detail Summary: 
+00:00:00
+In this section, Yves Morieux discusses the productivity crisis and how it is impacting society, with productivity growth slowing down over the years. The holy trinity of efficiency (clarity, measurement, and accountability) has become counterproductive for human efforts, derailing progress and causing the crisis. Morieux uses the analogy of a relay race where the fastest team, the US team, is compared to the French team, with the individual times of their runners adding up to a 3.2 meter difference. However, towards the end of the race, Torri Edwards, the fourth US runner, is ahead, as she received a gold medal for the 100-meter race.
+
+00:05:00
+In this section, Yves Morieux discusses how cooperation is essential for success, as it multiplies energy and intelligence in human efforts, allowing us to do more with less. However, he also highlights how too much focus on clarity, measurement, and accountability can hinder cooperation and create a culture where people are more concerned with knowing who to blame in case of failure rather than creating the conditions for success. He uses the example of a relay race to illustrate how too many rules and a lack of cooperation can cause the slowest team to win, as they focus on passing the baton successfully rather than only being concerned with individual roles and measurements.
+
+00:10:00
+In this section, consultant Yves Morieux speaks about the counterproductive nature of the modern workplace, where the focus is on measurements, reporting, and rules to ensure accountability. The complexity of modern business has led to the multiplication of structures, processes, and systems, leading to employees putting their energy into what can be measured, rather than cooperation. This, in turn, has led to a deterioration in productivity, with teams spending as much as 80 percent of their time on low-value activities. The message is clear - organizations must focus on simplification and cooperation, rather than trying to rule through compliance.
+
+00:15:00
+In this section, Yves Morieux argues that blaming personalities instead of the lack of clarity, accountability, and measurement creates ineffectiveness and injustice. He proposes creating organizations that make it individually useful for people to cooperate, removing complicated coordination structures, focusing on fuzziness instead of clarity, and assessing cooperation rather than speed and quantitative metrics. Morieux also addresses leaders and managers, asking them to make it useful for people to cooperate and highlighting the importance of their influence on the future of organizations, societies, and companies.
+

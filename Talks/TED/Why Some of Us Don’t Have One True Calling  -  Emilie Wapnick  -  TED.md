@@ -1,0 +1,14 @@
+# Summary of Why Some of Us Don’t Have One True Calling | Emilie Wapnick | TED
+
+Emilie Wapnick discusses the anxiety caused by having multiple interests and not being sure how to turn them into a career. She argues that while society makes us believe we have to choose one thing, there are individuals who have many interests and creative pursuits, known as "multipotentialites". She believes that society must encourage individuals with diverse skill sets and interests rather than forcing them to choose one area to specialize in. Multipotentialites possess valuable skills such as idea synthesis, rapid learning, and adaptability that are necessary for solving complex problems in the world. Ultimately, she encourages everyone to embrace their inner wiring and design lives and careers that align with their passions and interests.
+
+Detail Summary: 
+00:00:00
+In this section, Emilie Wapnick discusses her anxiety caused by having multiple interests and not being sure how to turn them into a career, feeling scattered and self-sabotaging since she wasn't able to stick with one thing. She asks the audience where they learned that doing many things is wrong or abnormal, explaining that the culture makes us believe we have to choose one thing. Wapnick argues that while the question "What do you want to be when you grow up?" inspires kids to dream about what they could be, it does not inspire them to dream about all they could be, imbuing them with a false sense of having to choose only one path in their lives, thwarting other possible interests and passions.
+
+00:05:00
+In this section, Emilie Wapnick talks about the concept of "multipotentialites", individuals who have many interests and creative pursuits. She believes that there are three superpowers that come with being a multipotentialite, first is Idea Synthesis which means they combine two or more fields to create something new. Second is Rapid Learning, they constantly observe and learn new things which help them in adapting to new situations and jobs. It is never a waste of time to pursue something that interests them, as the knowledge they gain can be applied in different fields and industries. Lastly, adaptability is their greatest strength, as they can easily morph into whatever is required in a given situation.&nbsp;
+
+00:10:00
+In this section, Emilie Wapnick argues that society must encourage individuals with diverse skill sets and interests rather than forcing them to choose one area to specialize in. She notes that multipotentialites possess valuable skills such as idea synthesis, rapid learning, and adaptability that are necessary for solving complex problems in the world. Wapnick also suggests that specialists can work alongside multipotentialites, creating a beautiful partnership to tackle various projects. Ultimately, she encourages everyone to embrace their inner wiring and design lives and careers that align with their passions and interests.
+

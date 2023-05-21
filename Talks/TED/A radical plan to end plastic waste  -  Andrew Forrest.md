@@ -1,0 +1,14 @@
+# Summary of A radical plan to end plastic waste | Andrew Forrest
+
+Andrew Forrest discusses the dangers of plastic waste to marine ecology and human health, highlighting that plastic fragments attract pathogens, toxins, mercury, and lead, and nano-plastics can enter the bloodstream and brain, leading to long-term health problems. He proposes a plan to make recycled plastic cheaper by creating a fund that is paid for by the sale of virgin plastic, which incentivizes the transition to recycling and pays for cleanup efforts. The plan creates a boom industry that could provide business opportunities, wealth, and jobs, particularly in impoverished areas around the world. Forrest intends to commit $300 million to this project and calls on resin producers and brands to contribute to the fund.
+
+Detail Summary: 
+00:00:00
+In this section, Andrew Forrest discusses the dangers of plastic waste to marine ecology and human health. Plastic is the worst substance for the environment because it fragments into smaller and smaller pieces, which are harmful as they carry negative charges that attract pathogens, toxins, mercury, and lead. Studies have shown that nano-plastics can go through the pores of the skin and the blood-brain barrier, leading to long-term health problems. Furthermore, The Ellen MacArthur Foundation estimates that there will be one ton of plastic for every three tons of fish by 2025, implying an urgent need to find sustainable solutions to tackle plastic dependence.
+
+00:05:00
+In this section, Andrew Forrest explains that the fundamental issue with recycling plastic is that it costs more than simply producing new plastic. He suggests raising the value of building blocks of plastic, which are made from oil and gas, so that recycling is more viable. Forrest's idea is to get the big plastic resin producers to charge consumers a bit of extra money and then pay into an environmental and industry transition fund, as the technology to transform plastic back into oil is proven to be scalable. Finally, Forrest asserts that this plan will give plastic value while providing wealth to Southeast Asian and Indian nations where plastic waste is most prevalent.
+
+00:10:00
+In this section, Andrew Forrest proposes a plan to transition from using virgin plastic to using recycled plastic by making recycled plastic cheaper than fossil fuel plastics. The plan involves creating a fund that is paid for by the sale of virgin plastic, which is then used to incentivize the transition to recycling and to pay for cleanup efforts. This plan would create a market for recyclable plastic, allowing millions of people to find a new living by collecting it. Forrest intends to commit $300 million to this project and calls on resin producers and brands to make a contribution to the fund. The plan creates a boom industry that could provide business opportunities, wealth, and jobs, particularly in impoverished areas around the world.
+

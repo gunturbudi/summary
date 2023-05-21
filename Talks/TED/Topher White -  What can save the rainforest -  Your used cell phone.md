@@ -1,0 +1,11 @@
+# Summary of Topher White: What can save the rainforest? Your used cell phone
+
+Topher White discusses a simple and scalable solution to stop illegal logging which is responsible for deforestation and contributes more to greenhouse gas emissions than all transportation combined, making it the second-highest contributor to climate change. By strategically placing used cell phones in trees, that contain various sensors which can detect the sounds of chainsaws and alert authorities to the illegal activity in real-time. White designed a unique solar panel to keep the phones charged under a thick forest canopy. This method has proven to be an effective deterrent for illegal loggers and people around the world have sent their old phones to White to help create these systems in other regions experiencing deforestation.
+
+Detail Summary: 
+00:00:00
+In this section, we learn that illegal logging, which is responsible for deforestation and contributes more to greenhouse gas emissions than all transportation combined, is the second-highest contributor to climate change. Topher White discusses a simple and scalable solution to stop illegal logging. His team invented a device that picks up the sound of chainsaws programmatically and sends an alert through the standard global system for mobile communication network to available rangers who can stop it in real-time. This system can be remotely implemented using existing devices in the jungle and can help shape the future of environmental preservation.
+
+00:05:00
+In this section, speaker Topher White suggests that used cell phones can be strategically placed in trees in order to thwart illegal logging, which is a primary cause of deforestation in areas like Indonesia. The cell phones contain various sensors that can detect the sounds of chainsaws and alert authorities to the illegal activity in real-time. To protect the phones and keep them functioning, White designed a unique solar panel to keep the phones charged, even under a thick forest canopy. This method has proven to be an effective deterrent for illegal loggers, and people around the world have sent their old phones to White to help create these systems in other regions experiencing deforestation.
+

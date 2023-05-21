@@ -1,0 +1,14 @@
+# Summary of Does Working Hard Really Make You a Good Person? | Azim Shariff | TED
+
+The psychological tendency to associate moral worth with effort, even when the outcome doesn't add extra value, creates a societal perception that working hard equals being a good person. This has resulted in a culture of workism, where our jobs are the source of our identity and self-actualization. The speaker argues that this leads to perverse incentives and a focus on building moral reputations rather than producing meaningful work. Counterproductive examples of this culture include a student delaying work to appear more industrious, leading to "bullshit work" that lacked value. However, refocusing on producing something meaningful rather than just making an effort can create a world full of meaning.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the psychological tendency to attach moral worth to effort, regardless of the outcome. He describes a study where participants were asked about a hypothetical employee named Jeff, who had the option to either work or go home after his job was replaced by software. Those who chose to continue working were seen as more moral and trustworthy, despite adding no extra value. This phenomenon of effort moralization appears to be universal, with people seeing harder-working individuals as better cooperation partners. The speaker argues that this tendency makes sense at an individual level, as someone who is willing to put effort into meaningless tasks is more likely to help others.
+
+00:05:00
+In this section, the speaker discusses how the societal perception of hard work being equivalent with being a good person has created a culture of workism, where our jobs are not only the source of our paycheck, but the source of our identity and pathway to self-actualization. This has created perverse incentives and made every other aspect of our lives just a little less important. Additionally, the culture of workism can create arms races where we try to one-up each other in terms of hard work, but what are we actually achieving in that process? The speaker emphasizes that this is not an argument against hard work, but rather a question of how much effort we spend building nothing but moral reputations and convincing others that we are hard workers.
+
+00:10:00
+In this section, the speaker shares examples of how hard work culture can be counterproductive and create perverse incentives. He talks about a student who wanted to delay their work to appear more industrious and how it led to producing "bullshit work," which wasn't valuable. The mental circuit connecting effort to morality can be stubborn, but recognizing our biases and refocusing to produce something meaningful rather than just an effort can create a world full of meaning.
+

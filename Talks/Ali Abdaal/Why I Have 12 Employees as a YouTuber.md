@@ -1,0 +1,28 @@
+# Summary of Why I Have 12 Employees as a YouTuber
+
+Source: https://youtube.com/watch?v=66G7TnkdMd8
+
+In the video "Why I Have 12 Employees as a YouTuber," the YouTuber explains the reasons behind his decision to hire a team, which includes freeing up his own time from low-value actions, creating better content, and enjoying a fun work environment that cultivates a team committed to success. He also discusses the roles of his team in content creation and making sustainable revenue without solely relying on specific platforms. The YouTuber describes each employee's role in his business and emphasizes the importance of having a flexible approach to hiring and maintaining a happy work environment. While there are challenges to managing a team, he finds it rewarding and beneficial to delegate tasks to people with different expertise.
+
+Detail Summary: 
+00:00:00
+In this section of the video, the YouTuber explains the three main reasons why he has 12 employees as a creator. The first is that hiring others has helped him free up his own time from doing low value actions that are not worth his time. Secondly, he wants to do more things and create better content. Lastly, having full-time employees rather than relying on freelancers creates a fun work environment and a team of people who are committed to the success of the business. Additionally, the YouTuber promotes WeWork as the sponsor of the video, a flexible workspace provider that he has been a customer of for the past two years.
+
+00:05:00
+In this section, the YouTuber explains the roles of the two halves of his team: content and money Squad. The content team helps create educational and inspiring content, complete with producers, podcast editors, and social media experts. Meanwhile, the money team is responsible for creating sustainable revenue in a non-salesy way. The YouTuber cites the danger of relying solely on a specific platform (such as YouTube) and highlights the need for diversification in social media and email to ensure anti-fragility and longevity in his business.
+
+00:10:00
+In this section of the video, the YouTuber discusses each member of his team and their role in creating content and running the business. The Content Squad includes a part-time researcher, two full-time video editors, freelancers, a website manager/executive assistant/head of legal and finance/HR, and a head of marketing. The Money Squad includes a head of marketing, head of sales and product, and head of customer success. The business works by creating 99% of its content for free, while the remaining 1% is available as paid courses. The team is focused on providing an exceptional experience for paying customers while continuing to create high-quality free content for everyone else.
+
+00:15:00
+In this section of the video, the YouTuber discusses the different roles of his 12 employees. He mentions Alison, who handles the feedback process for their students, and Bob, who is in charge of the operations management of their courses side of the business. The YouTuber explains that Bob will soon transition into an innovation role to improve efficiency in the business. Angus, the general manager of the business, is described as the glue that holds the entire business together and orchestrates the team. The YouTuber also reveals that the team is mostly comprised of generalists rather than specialists, which allows for more flexibility in adapting to rapidly evolving business needs. Additionally, the ideal profit margin is discussed, as they aim for 60% margins to achieve a profit of around 2 million pounds.
+
+00:20:00
+In this section, the YouTuber discusses his decision-making framework for hiring new employees, emphasizing that the process should not be taken lightly. He suggests exploring options for automation or reprioritizing existing projects before deciding to add a new team member. He also touches on the importance of team happiness and how they regularly survey their employees to ensure a positive and productive working environment. He notes that the first few hires are always the most impactful, with diminishing returns as the team grows larger. The YouTuber acknowledges the tension between being "startup smart" and "corporate smart" and aims to strike a balance between the two for the success of his business.
+
+00:25:00
+In this section, the YouTuber discusses the challenges and benefits of managing a team of 12 employees. With more people comes more complexity and pressure, such as having to meet revenue targets and juggling different projects. However, having a team also means being able to delegate and find people who are better at certain tasks than you are. One challenge is wanting to make everyone on the team happy, but the YouTuber feels a sense of responsibility towards their team members. Despite the challenges, the YouTuber loves their business and looks forward to working with their team every day. They even went on a team retreat in Lisbon to get work done and foster great vibes among the team.
+
+00:30:00
+In this section of the video, the YouTuber shares her experiences of running a team of twelve employees and how rewarding it has been for her. She recommends hiring a team but also acknowledges the challenges that come with it and advises speaking to people who have been through the process before. She admits to having made many mistakes herself throughout her three years of building a team and emphasizes that it's all in favor of progress rather than perfection. She suggests watching her previous video about their failures in 2022 in which they missed a revenue target by a large margin and made many mistakes, but learned from them to improve their business.
+

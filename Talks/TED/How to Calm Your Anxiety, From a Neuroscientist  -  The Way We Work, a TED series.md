@@ -1,0 +1,11 @@
+# Summary of How to Calm Your Anxiety, From a Neuroscientist | The Way We Work, a TED series
+
+A neuroscientist in this TED Series video explains that anxiety is a useful tool for humans to avoid danger and should be seen as helpful, although the high levels of individual and collective anxiety can be harmful. The speaker suggests using two science-based tools - breath work and moving the body - to calm down anxiety levels. By connecting with one's body and finding warning signals, anxiety can be managed and turned down, potentially increasing empathy levels as one notices signs of anxiety in others and offers support. The concept of anxiety as a personal superpower to boost empathy is introduced, and the importance of effectively managing anxiety is emphasized.
+
+Detail Summary: 
+00:00:00
+In this section, a neuroscientist explains that anxiety is not always a bad thing, as it's a tool that humans use to avoid danger, and since it's essential for our survival, it should be seen as something helpful. However, the staggering individual and collective anxiety levels have turned up the volume to a harmful extent. To alleviate anxiety, the speaker offers two practical and science-based tools that can calm it down: breath work and moving the body. Breath work involves deep breathing exercises that slowly inhale and exhale to activate the natural de-stressing part of the nervous system, while moving the body releases mood- and reward-boosting neurochemicals that can increase positive mood states and decrease negative ones. This means, engaging in small bouts of activity like taking a walk or dancing for a few minutes can reduce anxiety levels.
+
+00:05:00
+In this section, the neuroscientist suggests connecting with one's body and turning down the volume on anxiety to be able to evaluate what makes one anxious and use this emotion to address potential dangers and effectively manage everyday life. By finding warning signals, one can communicate with others for advice and support without feeling threatened. The approach can also increase empathy as one notices telltale signs of anxiety in everyone around and gives them a smile or kind word to help them through the moment, proving that anxiety can be a personal superpower to boost empathy levels.
+

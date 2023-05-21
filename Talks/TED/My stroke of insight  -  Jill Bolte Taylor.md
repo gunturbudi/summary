@@ -1,0 +1,17 @@
+# Summary of My stroke of insight | Jill Bolte Taylor
+
+In the video "My Stroke of Insight," neuroanatomist Jill Bolte Taylor describes her personal experience of having a stroke and losing the functions of her left hemisphere, leading to a sense of peacefulness and euphoria. She shares how she struggled to get help due to her paralysis and eventually recovered after eight years. Taylor believes that anyone can find inner peace and projecting more peace into the world can lead to a more peaceful planet. She highlights the importance of running the deep inner-peace circuitry of the right hemisphere.
+
+Detail Summary: 
+00:00:00
+In this section, Jill Bolte Taylor explains how she ended up studying the human brain and its functions. As the sister of someone diagnosed with schizophrenia, Taylor wanted to understand why she could actualize her dreams but her brother could not. Thus, she dedicated her career to researching severe mental illnesses. However, one day, Taylor woke up with her own brain disorder: a blood vessel had exploded in the left half of her brain. Taylor then presents a real human brain and explains that the two hemispheres process information and think differently. Finally, Taylor discusses that the right hemisphere is all about the present moment and that as energy beings connected to each other through consciousness, we are one human family.
+
+00:05:00
+In this section, Jill Bolte Taylor, a neuroanatomist, explains the function and characteristics of the left hemisphere of the brain. She describes how the left hemisphere thinks linearly, is all about the past and future, categorizes and organizes information, thinks in language, and creates a singular sense of self. She then narrates her personal experience of having a stroke, where she lost the functions of the left hemisphere of her brain. She shares how her brain chatter went silent and she felt at one with the energy around her, freeing her from external stresses and leaving her feeling lighter in her body.
+
+00:10:00
+In this section, Jill Bolte Taylor described her experience of having a stroke and how her left hemisphere went offline, giving her a sense of peacefulness and euphoria. She then realized that she needed to get help and tried to focus on dialing the phone to get assistance. However, her right arm was paralyzed, and she found it challenging to identify her business card and remember the numbers to dial. Eventually, she managed to call her colleague and get help. While being transported to the hospital, she felt her spirit surrender, and she thought it might be the moment of her transition. She woke up to discover that she was still alive, but her sensory systems were overwhelmed, and she felt enormous and expansive due to not identifying the position of her body in space.
+
+00:15:00
+In this section of the video, Jill Bolte Taylor describes the feeling of complete nirvana that she experienced during her stroke. She believed that anyone who is alive can also find this peace and that it could be a tremendous gift to how we live our lives. It took her eight years to completely recover, and during that time, she realized that we have the power to choose who and how we want to be in the world. She believes that the more we run our deep inner-peace circuitry of the right hemisphere, the more peace we will project into the world, and the more peaceful our planet will be.
+

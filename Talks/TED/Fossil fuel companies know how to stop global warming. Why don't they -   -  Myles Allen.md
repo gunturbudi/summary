@@ -1,0 +1,14 @@
+# Summary of Fossil fuel companies know how to stop global warming. Why don't they? | Myles Allen
+
+Myles Allen argues that the fossil fuel industry knows how to stop global warming but is waiting for someone else to foot the bill. He suggests that decarbonizing fuels is the only alternative to banning them and that the responsibility to decarbonize rests with the companies that produce and sell those fuels. Allen emphasizes the need for the industry to take responsibility for solving the problem of global warming by seeking their help and utilizing the knowledge of their engineers to come up with solutions, rather than calling for their demise. He calls upon the industry's management to take action and address the issue before it's too late.
+
+Detail Summary: 
+00:00:00
+In this section, Myles Allen argues that the fossil fuel industry already knows how to stop global warming but is waiting for someone else to foot the bill. Decarbonizing fuels is the only alternative to banning them, and carbon-free alternatives would need to outcompete all of the different uses of fossil fuels, from aviation fuel to cement production. The responsibility to decarbonize the fuels he believes rests with the companies that produce and sell those fuels. They can do this by their engineers capturing the carbon dioxide and re-injecting it back underground, and this coupled with planting trees may help reduce the impacts of global warming.
+
+00:05:00
+In this section, the speaker explains how recapturing and safe disposal of carbon dioxide is not widely practiced due to cost, as it is cheaper to dump it into the atmosphere than capture it and dispose of it safely. However, a cost-effective pathway would involve decarbonizing fossil fuels, with companies producing fossil fuels building a carbon dioxide disposal industry comparable in size to today's oil and gas industry. While using fossil fuel-based products may become more expensive, this cost would be spent on solving the problem, and consumers could switch to electric cars, for example. Additionally, developing countries could agree to use fossil fuels that have been progressively decarbonized in this way, which would not require them to accept limits on the amount they consume. The speaker notes that this will require a movement, with fossil fuel companies playing a central role in solving the climate change problem.
+
+00:10:00
+In this section, Myles Allen emphasizes the need for the fossil fuel industry to take responsibility for solving the problem of global warming caused by their product, rather than calling for their demise. He suggests seeking their help and utilizing the knowledge of their engineers to come up with solutions. Allen calls upon the industry's management to take action and address the issue before it's too late.
+

@@ -1,0 +1,11 @@
+# Summary of What Happens to Gas Stations When the World Goes Electric? | Emily Grubert | TED
+
+Emily Grubert discusses the necessity of having transition plans to replace fossil fuel-powered infrastructure to avoid harmful unplanned transitions. She emphasizes the need for deadlines for fossil asset retirements with ample notice to allow communities to create and implement plans. Planning for the transition is an ethical responsibility that takes time but also creates opportunities to correct the harms of the past and implement a just and sustainable future with a focus on ensuring people have what they need to succeed through this transition.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker explains that if we successfully reach international climate goals, fossil fuel infrastructure will have to retire over the next few decades. This infrastructure includes big things like power plants and refineries, but it also includes things like gas stations and people's cars, stoves and furnaces. The speaker emphasizes that letting these systems go away would be disruptive and hazardous, and we need to plan for the transition to renewable energy. However, this transition period will probably last decades and will be complicated by climate change and declining access to energy services, and there is currently nowhere in the world where the urgently needed plans for phasing out fossil fuels while phasing in renewable energy exist.
+
+00:05:00
+In this section, Emily Grubert discusses the importance of having transition plans to replace fossil fuel-powered infrastructure to avoid unplanned transitions, which can be harmful to communities. She suggests setting deadlines for fossil asset retirements, with ample notice, to give communities enough time to create and implement plans. She gives the example of requiring all fossil fuel-fired power generators to close by 2035, which would allow the majority of them to meet or exceed a typical lifespan, potentially giving communities confidence that these deadlines are manageable. Planning for the transition is an ethical responsibility that takes time but also creates opportunities to correct the harms of the past and implement a just and sustainable future. Collaboration and a focus on ensuring people have what they need to succeed through this transition will be critical.
+

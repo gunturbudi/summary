@@ -1,0 +1,17 @@
+# Summary of Anne Curzan: What makes a word "real"?
+
+Anne Curzan, a professor of English specializing in language, discusses the process of how words are included in dictionaries, stating that dictitionary editors stay up-to-date with new words by noting how people speak and write, and that some words come and go while some stand the test of time. Usage labels and notes are included in dictionaries to provide guidance on slang, informal or offensive terms, and to acknowledge that words are evolving and changing. The speaker argues that as a community of speakers, we are the ones who decide which words we use and what they mean and that dictionaries serve as a useful guide, but are not the final authority on what words are "real." She concludes that language change is natural and something to be embraced.
+
+Detail Summary: 
+00:00:00
+In this section, Anne Curzan, a professor of English specializing in language, discusses what makes a word "real" and who has the authority to decide. She explains that when a new word is not in a standard dictionary, people believe it is not real, but who writes dictionaries and who determines what words get included? Curzan collects new slang words and views it as research, mentioning "hangry" and "adorkable" as examples of terrific words filling important gaps in the English language that are yet to appear in a dictionary. She points out that while dictionaries are fantastic resources, they have human editors and are not timeless, and people should critically question them, just like they do with other texts and websites they visit.
+
+00:05:00
+In this section, linguist Anne Curzan discusses the process behind how dictionary editors determine what words they include in their publications. Curzan explains that dictionary editors remain up-to-date with new words and phrases by paying attention to how people speak and write in order to determine which words will stand the test of time. With the annual American Dialect Society meeting, linguists identify and vote on new words of the year in different categories. Acknowledging that some words come and go and many don't stand the test of time.
+
+00:10:00
+In this section, Linguist Anne Curzan explains that dictionary editors use usage labels to provide guidance on slang, informal, or offensive terms but must be mindful to accurately reflect how we use language. She explains that American Heritage Dictionaries include usage notes because they acknowledge that words are evolving, and meaning changes. Usage notes are personal opinions of individuals on the Usage Panel and are based on a sense of the range of opinions about contested usage, allowing a better understanding of how words are changing in the English language. The dictionary editors rely on database research of the most commonly used words to decide which terms to include, regardless of what they may personally like or dislike.
+
+00:15:00
+In this section, the speaker argues that language change is nothing to worry about; it is, in fact, fun and fascinating. Although some might worry about new verbs, like "impact," or nouns, like "invite," there is no need for alarm. Language change happens naturally, and as a community of speakers, we are the ones who decide which words we use and what they mean. While dictionaries can serve as a useful guide, they are not the final authority on what words are "real." If people use a word and know what it means, it should be considered a legitimate part of the English language.
+

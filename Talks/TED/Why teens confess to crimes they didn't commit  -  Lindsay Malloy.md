@@ -1,0 +1,14 @@
+# Summary of Why teens confess to crimes they didn't commit | Lindsay Malloy
+
+Lindsay Malloy, a forensic developmental psychologist, discusses the issue of false confessions made by teenagers in the criminal justice system. Through her research, Malloy found that high-pressure police interrogations, which use lying and threats and lack parental or legal representation, make teenagers especially vulnerable to falsely confessing. She advocates for educating law enforcement on developmental limitations and implementing special protections for juveniles during interrogations, as well as having an "appropriate adult" present, such as a lawyer or child advocate, to ensure their rights are protected.
+
+Detail Summary: 
+00:00:00
+In this section, Lindsay Malloy describes the case of Brendan Dassey and how his interrogation is not unique, but rather all too common. Dassey was a 16-year-old with an IQ of around 70 who was convinced of his own guilt by the police and falsely confessed to a crime he didn't commit. Malloy, a forensic developmental psychologist, studies cases like these and aims to conduct scientific research to understand how kids fit into a legal system designed for adults. Through research studies, we can see that youth, like Brendan Dassey, are especially vulnerable to false confessions, with 42% of juveniles falsely confessing compared to only 8% of adults in a study of exonerations.
+
+00:05:00
+In this section, Lindsay Malloy discusses false confessions, specifically those that occur among teenagers. In her research, Malloy found that 17% of incarcerated teenagers between the ages of 14 and 17 reported making at least one false confession to the police. She attributes this to the high-pressure police interrogations that are designed to make suspects feel hopeless and that confession is the only option. In the US, police are allowed to interrogate juveniles just like adults and use tactics like blatant lying and threats, which are banned in the UK. Malloy advocates for educating law enforcement on juveniles' developmental limitations and implementing special protections for them during interrogations.
+
+00:10:00
+In this section, Lindsay Malloy discusses the lack of parental or legal representation in interrogations of juveniles. Research shows that few teens have a parent or attorney present during questioning, and even fewer ask to consult them. In a study where participants were falsely accused of cheating, 59% of teens confessed to the act without involving a parent. Malloy argues that an "appropriate adult," such as a lawyer or child advocate, should be present when interrogating juveniles to ensure their rights are protected. Additionally, police need better training for speaking with youth to prevent false confessions such as Brendan Dassey's.
+

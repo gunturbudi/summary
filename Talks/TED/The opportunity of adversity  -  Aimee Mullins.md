@@ -1,0 +1,20 @@
+# Summary of The opportunity of adversity | Aimee Mullins
+
+Aimee Mullins discusses the negative effects of language and labels, advocating for a paradigm shift that emphasizes potential over perceived limitations. She challenges the notion of "overcoming adversity" and encourages us to view it as change, rather than something inherently negative. Mullins emphasizes the importance of seeing the whole person and acknowledging their potency, rather than solely focusing on what is broken. She argues that the only true disability is a crushed spirit, which removes hope and imagination, and emphasizes the importance of bolstering the human spirit to maintain these qualities. She concludes with a powerful poem by Hafiz that celebrates the simplicity of life and our desire to dance with others.
+
+Detail Summary: 
+00:00:00
+In this section, speaker Aimee Mullins discusses the negative impact of language and the labels we attach to people. She shares the shocking entry she found in an old thesaurus in the early 1980s, which included insulting words such as "maimed," "wounded," and "crippled" under the word "disabled." She believes that the language we use reflects our values and shapes our thinking, and that by casually labeling someone, we may be limiting their potential. Mullins shares how her childhood doctor, Dr. Pizzutillo, opened doors for her and empowered her to achieve her potential despite her disability.
+
+00:05:00
+In this section, Aimee Mullins shares how a simple ploy from her doctor to reshape her perception of a difficult task had a profound impact on her. She also discusses how our language needs to catch up with the changes in society, particularly those brought about by technology, which is allowing people to move beyond the limits nature has imposed on them. Aimee challenges the idea of "overcoming adversity," saying that adversity is part of life and changes us, and that our responsibility is not to shield those we care for from adversity, but to prepare them to meet it well. She also highlights the distinction between the objective medical fact of being differently-abled and the subjective societal opinion of being disabled.
+
+00:10:00
+In this section, Aimee Mullins argues that viewing humans solely based on what is broken in them and how to fix it can be more disabling than the pathology itself. Instead, she suggests seeing the whole person and acknowledging their potency to prevent grading someone's worth to the community. She encourages us to re-imagine adversity as something more than just tough times and view it as change. The greatest adversity we have created for ourselves is the idea of normalcy, which we should replace with a paradigm of possibility or potency. She concludes by drawing inspiration from Neanderthals' community spirit and their value for the elderly and physically injured.
+
+00:15:00
+In this section of the talk, Aimee Mullins shares a story about Dr. Kean, who delivered her from her mother's womb and gave the prognosis that she would never have the kind of mobility other kids have. However, Mullins proved him wrong when she achieved some incredible feats such as marching with the Girl Scouts, winning college scholarships, and securing sports victories. Dr. Kean taught resident and medical students that where there is a will, there is a way. Mullins’ shift in thinking, which she explains later, occurred because she has been exposed to more people who have opened doors for her than those who have closed them.
+
+00:20:00
+In this section, Aimee Mullins explains that the only true disability is a crushed spirit because it removes hope, beauty, curiosity, and imagination, which are essential to creating new realities and ways of being. She emphasizes the importance of bolstering the human spirit to maintain these qualities and use our power well. Aimee finishes her talk with a poem by Hafiz, "The God Who Only Knows Four Words," that highlights the simplicity of life and our innate desire to dance with others.
+

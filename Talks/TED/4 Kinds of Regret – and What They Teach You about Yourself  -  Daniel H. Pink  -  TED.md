@@ -1,0 +1,20 @@
+# Summary of 4 Kinds of Regret – and What They Teach You about Yourself | Daniel H. Pink | TED
+
+Daniel H. Pink discusses the four types of regrets, which are foundation, boldness, moral, and connection regrets. Regrets can guide individuals towards a fulfilling life by highlighting the importance of stability, opportunities for growth, doing the right thing, and having meaningful relationships. Pink advises treating regrets constructively, using self-compassion, sharing them, and extracting lessons from them to promote personal growth. Additionally, Pink suggests decision-making heuristics to avoid being paralyzed by fear or further regret and emphasizes using regrets as tools for thinking, not for wallowing or ignoring them.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the four core regrets that people have: foundation regrets, boldness regrets, moral regrets, and connection regrets. Foundation regrets deal with choices that didn't allow for stability, such as not saving enough money or not taking care of your health. Boldness regrets stem from not taking a chance when faced with a decision and playing it safe instead. Moral regrets arise from choosing to do the wrong thing instead of the right thing, such as stealing or infidelity. Connection regrets are about relationships, both those that have ended and those that could have been but never were.
+
+00:05:00
+In this section, Daniel H. Pink discusses the four types of regrets and their significance. The four core regrets are foundation regrets, boldness regrets, moral regrets, and connection regrets. Despite being negative emotions, regrets can point individuals towards the recipe for a good life: stability, opportunities to learn and grow, doing the right thing, and having meaningful relationships. Pink believes that connection regrets are potentially the most crucial as they reveal that people yearn for connection and mutual appreciation. The biggest takeaway from this work for Pink personally was recognizing the importance of always reaching out regarding the connection regrets. Pink states that talking about regrets is important as people can start reckoning with their own regrets and use them to direct them towards a fulfilling life.
+
+00:10:00
+In this section, Daniel H. Pink speaks to Lily about her regret of being shy and lacking self-confidence as a young adult. Pink highlights the importance of dealing with regrets in a constructive way, using them as signals to shape personal growth and introspection. He suggests that instead of ignoring or wallowing in regrets, people should treat themselves with self-compassion, recognize that others share similar experiences, and disclose their regrets to remove the burden. By converting regrets into concrete words, individuals may begin the process of sense-making, defusing the power of the regret. Pink notes that disclosing vulnerabilities and weaknesses tends to make people more likable as it allows others to empathize with them.
+
+00:15:00
+In this section of the video, Daniel H. Pink and Lily discuss how to extract a lesson from regret. Lily shares her regret of not speaking up when she had the chance, and Pink encourages her to treat herself with kindness, talk about it, and extract a lesson from it. The lesson is to speak up the next time an opportunity appears. Claudia asks how to avoid being paralyzed by fear or further regret. Pink suggests two decision-making heuristics: stop, think, and make the decision, or self-distance and think about how a future self would look back on the decision.
+
+00:20:00
+In this section, author Daniel H. Pink explains the difference between a regret and a mistake, noting that a regret is something you did wrong, that you had control over, and that sticks with you for a long time. Mistakes, on the other hand, can be made without regret if they do not have enough significance to linger as a negative emotion. Pink emphasizes that regrets should be used as tools for thinking, not for wallowing or ignoring them, and that they can teach us about ourselves and our values.
+

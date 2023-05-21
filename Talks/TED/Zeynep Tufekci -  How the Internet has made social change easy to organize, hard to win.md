@@ -1,0 +1,17 @@
+# Summary of Zeynep Tufekci: How the Internet has made social change easy to organize, hard to win
+
+Zeynep Tufekci discusses the paradox of how social media and technology have made it easier to organize social movements but have weakened them in achieving their goals. She cites examples of successful digital activism in Turkey, Egypt, and the Occupy movement but highlights the Civil Rights Movement's sustained organizational efforts that cultivated important group dynamics, consensus-building, innovation, and persistence. Today's movements scale up quickly but lack the necessary organizational base to succeed over time. Tufekci emphasizes the need for innovation at every level and that platforms alone will not be enough to create social change.
+
+Detail Summary: 
+00:00:00
+In this section, Zeynep Tufekci discusses how social media and the internet have made it easier to organize social movements, but at the same time, paradoxically weakened them. She gives examples of how Twitter was essential to organizing the Gezi Park protests and how it was also used to break censorship. Tufekci points out that even though movements like the Gezi Park protests or the Arab uprisings achieved massive mobilization and global attention, they did not receive proportional outcomes in the end. She raises the question of why successful outcomes have not become more likely with the use of digital platforms.
+
+00:05:00
+In this section, Zeynep Tufekci discusses how technology has empowered individuals and made it easier to mobilize for social change, but this does not necessarily translate to easier achievement of goals. She gives examples of successful digital activism in Turkey and Egypt, as well as the Occupy movement, which protested worldwide. However, Tufekci notes that the Civil Rights Movement of the 1950s and 1960s, for example, demonstrated that slow and sustained organizational efforts cultivate important group dynamics, consensus-building, innovation, and persistence, qualities that may be lost in today's fast-paced digital protests. Tufekci highlights that the Gezi protests in Turkey were a recent example of this. Despite their widespread global impact, the policies that fueled Occupy and European anti-austerity protests, for example, are still in place.
+
+00:10:00
+In this section of the video, the speaker compares the Civil Rights Movement's long-term organizational tactics that led to successful protests, to today's movements that scale up quickly without the necessary organizational base to succeed over time. Today's movements lack the capacity to weather transitions and shift tactics. While digital technology is useful for quickly spreading awareness, movements today must move beyond scaling up fast and figure out how to think and work together collectively to build depth of capacity that can sustain the movement over time and exert leverage over the system.
+
+00:15:00
+In this section of the video, Zeynep Tufekci stresses the fact that online platforms for decision-making, such as Loomio, DemocracyOS, and 140Journos are needed but are not going to be enough to create social change. Tufekci states that developing policy, creating consensus, figuring out political steps, and relating them to leverage are all crucial for social change. Tufekci concludes that to succeed over the long term, innovation is necessary at every level, from the organizational to the political to the social, and platforms alone will not be enough.
+

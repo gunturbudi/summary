@@ -1,0 +1,19 @@
+# Summary of Why Haiti is in a Constant State of Emergency
+
+Source: https://youtube.com/watch?v=Yrys-m5A5A8
+
+The chronic fuel shortage caused by gangs and political instability is identified as a major challenge facing Haiti, leading to high costs of goods and services. The video also discusses the history of Haiti's independence and how France inflicted an enormous debt on the country, causing a cycle of debt that persists today. American corporations are also seen as contributors to Haiti's state of emergency, with the National City Bank of New York stopping the flow of government money and triggering an invasion. The speaker dismisses the notion that Haiti's struggles are due to natural causes and argues that foreign abuse is responsible. Finally, the speaker advertises the streaming service CuriosityStream, which offers documentaries on history, science, and nature.
+
+Detail Summary: 
+00:00:00
+In this section, the chronic fuel shortage in Haiti, which has led to the high cost of goods and services, including medical care, education, and electricity, is identified as a major challenge facing the country. This shortage has been caused by the blockade of a storage site by an armed coalition of gangs responsible for 70% of the nation's oil, who also regularly terrorize the population. However, this is just one of the many crises facing the country, which has been constantly hit by natural disasters, the most recent being the magnitude 7.2 earthquake of 2021. The root cause of Haiti's problems is considered to be political instability, which has plagued the country for decades because of its weak, overwhelmed, and short-lived governments.
+
+00:05:00
+In this section of the video, the history of Haiti's independence and how France inflicted an enormous debt on the newly independent nation in order to recognize its existence is discussed. Haiti was forced to pay France 112 million Francs for recognition with threats of military action if they refused. This one act would trap Haiti in a cycle of debt that persists today, with loans taken out with predatory interest rates and fees. In 1838, half of Haiti’s annual budget was spent on the military, less than 1% on education, and about 30% on servicing its national debt. By 1914, 80% of its budget was spent on the same. Despite paying off their debts, Haiti didn't earn a seat at the international table but was held back by the Vatican and the United States.
+
+00:10:00
+In this section of the video, the excerpt explained how American corporations contribution to Haiti's state of emergency. The National City Bank of New York now Citibank, planned a disruption for Haiti by purchasing a major stake in a Haitian bank. The bank served as Haiti's national treasury, holding tax revenue, currency printing, and commercial lending. They stopped the flow of the government's money and stole millions of dollars in gold from the national treasury when an uprising was triggered in 1914, providing a pretext for invasion. The first invasion lasted for about two decades, and during this period, political violence was normalized, and the government's legitimacy was undermined. This problem centralizes power, paving the way for political violence and undermining the government's role in providing relief during crises, such as the 2010 earthquake.
+
+00:15:00
+In this section, the speaker dismisses the notion that Haiti's struggles can be attributed to natural causes, arguing instead that centuries of abuse by foreign powers are to blame. The speaker notes that a storm can be catastrophic in one place and only mildly inconvenient in another, and that the scientific reasons for this are fascinating. The speaker then goes on to advertise the streaming service CuriosityStream, which offers thousands of documentaries on history, science, and nature, along with his own original series "China, Actually" on the companion platform Nebula.
+

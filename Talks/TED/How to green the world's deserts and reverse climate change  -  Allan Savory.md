@@ -1,0 +1,20 @@
+# Summary of How to green the world's deserts and reverse climate change | Allan Savory
+
+In this video, Allan Savory discusses how desertification is caused by too much bare ground, and suggests using livestock to mimic natural herds to cover up the ground and solve the problem. He explains that grazing animals prevent overgrazing by maintaining soil cover through dunging, urinating, and trampling, which can reverse desertification and regenerate the world's deserts. Savory also discusses the negative effects of burning grasslands and advocates for using holistic management and planned grazing to restore grasslands and capture carbon. He argues that implementing his method on half of the world's grasslands can safely store atmospheric carbon and improve global food security.
+
+Detail Summary: 
+00:00:00
+In this section, Allan Savory explains that desertification is the main cause of land turning into a desert, and this happens when there is too much bare ground. He suggests that the world must look to nature to cover up the ground and solve this problem. Savory takes an informative approach by showing the audience that desertification is occurring in areas with months of humidity followed by months of dryness, and that desertification is not solely occurring in arid and semi-arid regions, but also in high rainfall areas. He believes most of this problem is caused by livestock, as they overgraze the plants, leaving the soil barren and evaporation levels to rise.
+
+00:05:00
+In this section, Allan Savory shares his experience in Africa, where he discovered that protecting animals from hunting led to land deterioration. He then talks about a similar situation in US national parks where land was desertifying, and American scientists had no explanation for it. Savory found that removing cattle from grasslands did not stop desertification but led to the opposite effect. He explains that grazing animals developed with pack-hunting predators, and large herds prevented overgrazing and maintained soil cover by dunging, urinating, and periodic trampling. According to Savory, this movement of large herds can help stop desertification and regenerate the world's deserts, reversing climate change.
+
+00:10:00
+In this section of the transcript, Allan Savory explains the negative effects of burning grasslands as a means of removing dead material, and how this leads to desertification and climate change. He advocates for using livestock, moving them in proximity to each other to mimic natural herds, as a solution to restoring grasslands and capturing carbon. Savory developed a process called holistic management and planned grazing, which addresses the complexity of nature and integrates social, environmental, and economic needs. This process has led to increases in crop yields as well.
+
+00:15:00
+In this section, Allan Savory discusses how managing land using livestock to mimic nature can reverse desertification and improve food security. He compares two pieces of land after rainfall, one of which has been managed using this technique and has a healthy river and abundant wildlife while the other does not. Savory argues that land management practices are just as responsible for climate change as fossil fuels and pose a significant threat to global food security, causing hunger, poverty, violence, and war. He believes that working with nature is a low-cost solution to reverse these issues and has already been implemented successfully on 15 million hectares on five continents.
+
+00:20:00
+In this section, Savory explains that if we implement his method on half of the world's grasslands, we can safely store atmospheric carbon in the grassland soils for thousands of years and potentially take the planet back to pre-industrial levels of carbon. This can be achieved while feeding people and is a significant hope for the planet, for children and all of humanity. When asked how the method initially works with a flock of animals, Savory explains that they do not usually provide any feed as the movement and mimicking nature principle trebles the stocking rate.
+

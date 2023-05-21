@@ -1,0 +1,16 @@
+# Summary of Top 5 Revision & Study Tips for Students
+
+Source: https://youtube.com/watch?v=0duNfnP8Z50
+
+The video "Top 5 Revision & Study Tips for Students" covers various methods to help students improve their studying process. The speakers suggest the effectiveness of spaced repetition and constraining the studying time to keep oneself focused and productive. They also recommend finding ways to keep studying enjoyable and taking care of oneself by taking rests. It's important not to compare studying progress with others since everyone learns differently. The video also promotes Nebula, a streaming platform where you can find in-depth discussions about various study tips. To access it, you need to sign up for a free trial of Curiosity Stream, followed by a three-dollar monthly or twenty-dollar yearly subscription.
+
+Detail Summary: 
+00:00:00
+In this section, the YouTuber and physics graduate Simon Clark discuss the effectiveness of spaced repetition and describe their own techniques for using it. Simon suggests keeping a paper diary where you write down a revision topic every day at increasing intervals (day 1, day 2, week 1, month 1) to break the forgetting curve and keep topics in your long-term memory. Next, they talk about the idea of constraining the time available for studying, explaining how work tends to expand to fill available time, meaning you could benefit from allocating less time for studying. They suggest using extracurricular activities as a means of creating these constraints to give oneself a set, non-negotiable amount of time to study as a way to remain focused and productive. Finally, they recommend finding ways to keep studying enjoyable to maintain a good mental state.
+
+00:05:00
+In this section, the video's presenter shares some tips on how to make studying less unpleasant. He suggests making studying a more pleasant thing to do by going to libraries and coffee shops, playing music, and using props to create a pleasant atmosphere. He also encourages finding time to take care of yourself, giving time to your body to rest, and allows your brain to recover before continuing the study process. Slacking off could be helpful sometimes, just like what he and his friends did when they were studying, balancing study time with board games and other fun activities. Lastly, he emphasizes not to compare your behind-the-scenes study process with someone's highlight reel, as everyone has different study rhythms and approaches, and that putting yourself down by comparing yourself to others is counterproductive.
+
+00:10:00
+In this section, the speaker emphasizes the importance of not comparing our studying progress with others because everyone learns at a different pace. He shares a story about a physiology class and how one student knew the answer to a niche question while the others didn't. When asked, the student admitted that he was behind on lectures and had just happened to read the answer that morning. The speaker also mentions his friend Simon's study tips and recommends signing up for Nebula, a streaming platform where they share in-depth discussions about various study tips. To access Nebula, you need to sign up for a free trial of Curiosity Stream, followed by a three-dollar monthly or twenty-dollar yearly subscription.
+

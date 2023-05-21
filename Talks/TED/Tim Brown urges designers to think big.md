@@ -1,0 +1,17 @@
+# Summary of Tim Brown urges designers to think big
+
+Tim Brown, CEO of renowned design firm IDEO, urges designers to think beyond just creating aesthetically pleasing products and instead use design thinking to solve complex problems and bring impactful world-changing innovations. Design thinking involves balancing desirability, technical feasibility, and economic viability to create solutions that can transform industries. Brown emphasizes the importance of human-centered design, involving community participation, and the use of prototypes to tackle bigger and more interesting questions. Brown believes that design thinking can make a difference and help create new ideas and innovations beyond just the latest products on the market.
+
+Detail Summary: 
+00:00:00
+In this section, Tim Brown explains the limitations of traditional design practices that are focused on creating aesthetically pleasing products, which often become obsolete in a short period. Brown argues that the design revolves around more than creating just a product, it is an approach that can be used to solve complex problems and bring impactful world-changing innovations. The design thinking approach involves balancing desirability, technical feasibility, and economic viability to create solutions that can change the landscape of the industry, similar to Isambard Kingdom Brunel's Great Western Railway that transformed the transportation industry in the 19th century.
+
+00:05:00
+In this section, Tim Brown talks about the basic ideas of design thinking, starting with the fact that design is human-centered. Design thinking should start with human needs and understanding culture and context. Then, the section moves on to talk about the importance of prototyping and putting ideas out into the world rather than just thinking about what to build. The focus is on learning by making. Finally, the section ends with the concept of participatory systems, where the goal is the active engagement of everyone and the creation of meaningful experiences beyond simply cash, which will be a major theme, not only for design, but also for the economy as we go forward.
+
+00:10:00
+In this section, Tim Brown discusses the idea of participation in design and its potential impact. He highlights projects such as Southwark Circle and Kaiser Permanente's healthcare system, which involved residents and nurses in the design process to make their services more effective. Brown emphasizes that design thinking provides a new way of tackling problems and encourages a divergent approach to exploring new alternatives and ideas. Before this process, it is important to have a clear design brief, a question to answer. One example of a question is "How might we improve access to safe drinking water for the world's poorest people, and at the same time stimulate innovation amongst local water providers?" Brown explains how IDEO and Acumen Fund have been working with 11 water organizations across India to develop new products, services, and business models to achieve this goal collaboratively.
+
+00:15:00
+In this section, Tim Brown emphasizes the importance of using prototypes, community participation, and focusing on systems to tackle bigger and more interesting questions. He believes that by doing this, design thinking can make a difference and help create new ideas and innovations beyond the latest High Street products. Brown also expresses his interest in hearing from the community about what kinds of questions they think design thinking can be used to tackle.
+

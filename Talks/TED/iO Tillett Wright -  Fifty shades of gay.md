@@ -1,0 +1,17 @@
+# Summary of iO Tillett Wright: Fifty shades of gay
+
+iO Tillett Wright discusses her personal journey towards embracing her true identity and the importance of recognizing the diversity within the LGBTQ+ community. She highlights the impact of her photography project, Self Evident Truths, which aimed to capture the faces of those who identified as anything other than 100% straight in an effort to promote empathy and combat inequality. Wright emphasizes that sexual orientation is not a binding agent and encourages society to recognize the multiplicity of human beings and remove over-simplified boxes and categories in order to promote equality and recognition of individual identities.
+
+Detail Summary: 
+00:00:00
+In this section of the talk, iO Tillett Wright discusses how society attempts to categorize and label people to make sense of their identities. She reflects on her personal experience growing up and feeling restricted by gender norms, pretending to be a boy for eight years, but finally realizing that she wanted to be a girl again. Wright acknowledges that her unorthodox upbringing, free of social and religious restrictions, allowed her to develop into her true self without being defined by any one label or category. She eventually became an advocate for the LGBTQ+ community and for marriage equality, recognizing how crucial it is for society to recognize and celebrate the diversity of individual identities.
+
+00:05:00
+In this section, iO Tillett Wright talks about her personal struggle with identity while watching the world outside of her utopian bubble exploded in raging debates. She became plagued by how anyone could vote to strip the rights of people based on one element of their character. She decided to photograph anyone who was not 100 percent straight in an effort to show the humanity that exists in everyone through the simplicity of a face. Self Evident Truths is a photographic record of LGBTQ America today, aimed at combating inequality and showing that the fight for equal rights is about more than just gay marriage.
+
+00:10:00
+In this section, iO Tillett Wright discusses the importance of visibility and familiarity in promoting empathy towards the LGBTQ+ community and the impact of her project Self Evident Truths, which aimed to photograph 10,000 people in the US who identified as anything other than 100% straight. Through her travels, Wright learned that her mission to photograph "gays" was flawed since there were many different shades of gay, and that people fell on a spectrum of what she referred to as "grey." This system highlights the complexities found in each person and reinforces that human beings are not one-dimensional, promoting empathy towards the LGBTQ+ community.
+
+00:15:00
+In this section, iO Tillett Wright highlights the vast spectrum of people that exist between the binary of being straight or gay, and the complications that presents when it comes to legal discrimination. Wright emphasizes that sexual orientation is a poor binding agent and that just because someone is not straight, it does not necessarily mean they share anything in common with others who are not straight. The goal of Wright's project and travels is to showcase the multiplicity of human beings and hopefully encourage the removal of over-simplified boxes and categories so that people can see and recognize each other as fellow human beings who deserve the same rights and opportunities.
+

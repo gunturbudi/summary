@@ -1,0 +1,17 @@
+# Summary of What are animals thinking and feeling? | Carl Safina
+
+In this video, Carl Safina emphasizes the importance of understanding the intelligence and emotional lives of animals, rather than viewing them from a human-centric perspective. He asserts that we should celebrate their differences and unique abilities rather than using them for our own gain. Safina argues that animals have similar basic needs and emotions to humans and that attributing possibilities of experience and emotion to them is not unscientific. He provides examples of animals showing awareness and emotion towards humans, but also highlights the negative impact humans have on wildlife and urges us to care enough to prevent further harm to the animal world.
+
+Detail Summary: 
+00:00:00
+In this section, Dr. Carl Safina discusses how humans tend to view everything from an "us versus them" perspective, particularly when it comes to other animals. However, he asserts that instead of asking if animals love us or not, we should be focused on understanding who they are. By looking into evolution, observing animal brains, and studying patterns of behavior, we can gain a greater appreciation for the intelligence and emotional lives of other beings. Given that different animals have unique ways of interacting with others, we should celebrate those differences instead of using them for our own gain. Dr. Safina argues that humans tend to overlook the remarkable abilities of other creatures, but by doing so, we miss out on important insights into the natural world.
+
+00:05:00
+In this section, Carl Safina discusses the similarities between humans and animals in terms of their basic needs and emotions. He argues that attributing human thoughts and emotions to other species is a sensible first guess. Empathy, the ability to match moods with companions, is not unique to humans and comes in different forms, such as basic empathy, sympathy, and compassion. Safina also responds to the argument that we cannot be certain that animals are capable of thinking and feeling, saying that attributing possibilities of experience and emotion to them is not unscientific, as their brains have similar structures and hormones that create mood and motivation, as humans.
+
+00:10:00
+In this section, Carl Safina talks about how animals have thoughts and feelings just like humans. Using his dog as an example, he explains that when she wants her belly rubbed, she trusts him to understand her needs and get the job done. Safina then shows various examples of how other animals like killer whales, wolves, and elephants also have complex social lives and experience grief. Despite humans causing them harm, such as pushing them to extinction and killing off all the wolves in Yellowstone National Park, animals don't hurt us back as much as they could. This leads Safina to pose questions about why we can trust animals around our toddlers and how killer whales have led researchers out of thick fog, showcasing the unique relationship humans can have with the animal kingdom.
+
+00:15:00
+In this section, the speaker describes instances of animals showing awareness and emotion towards humans, such as dolphins recognizing a boat and an albatross flying thousands of miles to feed its chick. However, the speaker also highlights the negative impact humans have on wildlife, with plastic pollution causing harm to creatures like albatrosses. The speaker urges humans to consider the consequences of their actions and to care enough to prevent further harm to the animal world.
+

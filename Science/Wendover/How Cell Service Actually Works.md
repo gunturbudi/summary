@@ -1,0 +1,19 @@
+# Summary of How Cell Service Actually Works
+
+Source: https://youtube.com/watch?v=0faCad2kKeg
+
+The video explains how electromagnetic radiation can be manipulated to convey information, and goes into detail about cell service, including how data is transmitted and received. By dividing the wave cycle into phases and manipulating amplitude and phase, more data can be transferred efficiently. The video also explains the development of cell sites and towers, the concept of overlapping cells for seamless signal, code division multiple access to allow multiple phones on the same channel, and the process behind decoding composite signals to determine user-specific data. The smart process of using fewer resources to transmit more data in the ever-evolving cell service network is highlighted as the key factor in bringing faster data speeds.
+
+Detail Summary: 
+00:00:00
+In this section, the video explains how electromagnetic radiation, such as light and radio waves, can be manipulated to convey information. The strength, or amplitude, and frequency, or wavelength, of the waves can be changed to alter the properties of the radiation. Amplitude modulation is used in AM radio, where it can transmit audio signals over long distances but is susceptible to interference. Frequency modulation is less susceptible to interference and is capable of transmitting higher quality audio signals. Digital devices encode data using binary code, where different wave properties represent ones and zeros. Lastly, the video explores how phase can also be manipulated to make electromagnetic radiation even more efficient in transmitting information.
+
+00:05:00
+In this section, the video explains how cell service actually works, including how data is transmitted and received. By dividing the wave cycle into distinct phases, more data can be transmitted in the same signal. By manipulating the amplitude and phase of the wave, more combinations can be created, allowing for even more data transfer. The video also explains the development of cell sites and cell towers, which were developed to address the previous inefficiencies of earlier cell phones. Finally, the video explains how these cell sites can connect to wired communication networks, or in more remote areas, use microwave transmitters to transfer data at high speeds.
+
+00:10:00
+In this section, it is explained that the center of each cell site must reach far enough that there is some overlap between cells so that if a cell phone is being used on the move, the call can be seamlessly passed from one cell site to the next without any drop-off in signal. Cell sites can be located nearly anywhere, which is important because their location absolutely matters. Originally, only 832 different frequencies were allocated for use by cell phones, but the development of code division multiple access enabled multiple phones to send and receive data on the same channel truly simultaneously, allowing for more efficient use of the available channels, and an increase in the number of users that can make a call at a given time.
+
+00:15:00
+In this section, we learn the process behind decoding a composite signal to determine user-specific data, which is essential in cell service. The unique spreading codes provided for each user are translated, then used to multiply the composite sequence to produce a translated spreading code output. The data sequence is obtained by translating the output and combining it with the composite sequence. This technique allows multiple users to use the same channel, packing as much data as possible into single transmissions. This concept is only one of many used to achieve the smart process of using fewer resources to transmit more data in the ever-evolving cell service network, which brings us faster data speeds.
+

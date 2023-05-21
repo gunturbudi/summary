@@ -1,0 +1,14 @@
+# Summary of Why I train grandmothers to treat depression | Dixon Chibanda
+
+Dixon Chibanda, a psychiatrist from Zimbabwe, has developed the Friendship Bench program to address mental health issues in low- and middle-income countries where there is a lack of psychiatrists and psychologists. The program trains grandmothers to deliver an evidence-based talk therapy that has proven as effective as standard depression treatment. Grandmothers on the Friendship Bench in Zimbabwe have treated over 30,000 people with depression, and a clinical trial showed that they were more effective than doctors. Chibanda suggests that creating a global network of grandmothers trained in talk therapy could reduce the burden on primary healthcare systems as the elderly population is expected to increase.
+
+Detail Summary: 
+00:00:00
+In this section, Dixon Chibanda, a psychiatrist from Zimbabwe, tells a story of how an 82-year-old woman, known as Grandmother Jack, helps a young mother struggling with depression. Chibanda explains that depression, known locally as kufungisisa, is a leading cause of suicide, especially in low- and middle-income countries where there is a lack of psychiatrists and psychologists. Chibanda trains grandmothers to deliver a problem-solving therapy that has proved as effective as standard depression treatment, which is a promising solution to addressing mental health issues in developing countries.
+
+00:05:00
+In this section of the video, Dixon Chibanda talks about how he was unable to help a suicidal patient who could not afford to travel to him, which is what led him to develop the Friendship Bench program. The Friendship Bench program trains grandmothers in evidence-based talk therapy to provide treatment for depression in their communities, empowering them with skills to listen and show empathy, using cognitive-behavioral therapy and mobile phone technology to support them. The program has been very successful, with more than 30,000 people receiving treatment from a grandmother on the Friendship Bench in Zimbabwe, and the clinical trial even showed that grandmothers were more effective at treating depression than doctors.
+
+00:10:00
+In this section, Dixon Chibanda highlights the potential for creating a global network of grandmothers trained in evidence-based talk therapy to fill the treatment gap for mental, neurological, and substance-use disorders, with the aim of reducing the burden on primary healthcare systems. He points out that, by 2050, the population aged 65 and above is expected to increase to 1.5 billion, and therefore training grandmothers to treat depression could benefit communities worldwide. He pays tribute to the late "Grandmother Jack" and her pioneering work, cheering on all the other grandmothers who are making a difference in people's lives.
+

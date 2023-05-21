@@ -1,0 +1,14 @@
+# Summary of I love being a police officer, but we need reform | Melvin Russell
+
+Melvin Russell, a former district police commander, loves being a police officer, but acknowledges that law enforcement is facing an invisible crisis. He stresses the need for police reform and unity, rather than division. Russell emphasizes taking responsibility by all parties, including the church, to build trust between law enforcement and the community. Russell highlights his own initiatives, such as partnering with pastors and creating jobs to address economic hardship, as examples of proactive community policing. Russell believes that great police officers should become great servers and views the future of Baltimore's rising again as achievable.
+
+Detail Summary: 
+00:00:00
+In this section, Melvin Russell, a former district police commander, talks about how he loves being a police officer, but admits that law enforcement is facing an invisible crisis. Despite agreeing that they can't arrest their way out of issues or profile someone illegally, they continue to contradict themselves. He revealed that he transcended from being a drug sergeant to a district commander by listening to his inner spirit and that change could never have and should never have been us versus them. He decided to meet all classes, races, creeds, and colors, including businesses, faith-based, eds, and meds, to bring real police reform to the communities he had authority over. They talked to communities to come up with strategies and deployments that would benefit them, and he believes in unity over division.
+
+00:05:00
+In this section, Melvin Russell, an ex-police officer and current pastor, speaks about the need for reform in law enforcement. He talks about how the protective arm of law enforcement has been exercised so much that it has led to dehumanization and abuse. In order to build trust between the community and police, he emphasizes the need for everyone to take responsibility, including the church, and not rely solely on law enforcement for every issue. He also shares some initiatives that he implemented in his district, such as partnering with pastors and creating jobs to address economic problems.
+
+00:10:00
+In this section, Melvin Russell talks about how he and his team managed to reduce crime in Baltimore to a 40-year low by focusing on the needs of the community and addressing the root causes of crime. He mentions that great police officers should become great servers and become proactive in protecting and serving their communities. However, he also expresses disappointment about how Baltimore went "back to business as usual" after those successful years. Nonetheless, Melvin Russell is excited again about Baltimore's future and believes that the city can rise again if everyone works together toward the same goals of having peace, respect, and love for one another.
+

@@ -1,0 +1,20 @@
+# Summary of Daphne Koller: What we're learning from online education
+
+Daphne Koller, founder of Coursera, emphasizes the potential of online education to provide accessible and affordable learning opportunities to anyone, anywhere. She discusses the problems with traditional education, such as its inaccessibility due to lack of resources, rising tuition fees and limited opportunities, and explains how Coursera aims to bridge the gap by offering free courses offered by top universities. Koller also discusses the success of real online course experiences, personalized curriculums, and the potential of personalization to improve student performance. Additionally, she advocates for a shift to active learning in the classroom and the democratization of education to enable innovation from individuals anywhere in the world.
+
+Detail Summary: 
+00:00:00
+In this section, Daphne Koller discusses the problems with traditional education and how her platform Coursera aims to bridge the gap and provide quality education to everyone around the world for free. Koller points out how education is inaccessible to many around the world due to a lack of resources, rising tuition fees and limited opportunities. To address these issues, Koller formed Coursera, which has 43 courses offered by top universities for free. Since February, Coursera has amassed over 640,000 students from 190 countries who are accessing the best content for free.
+
+00:05:00
+In this section, Daphne Koller discusses the success of real online course experiences and what differentiates them from traditional online courses. During these real courses, students would have weekly readings, videos to watch and graded assignments to complete. Online courses allow universities to break away from monolithic one-hour lectures and offers students much more personalized curriculums. They can access preparatory materials, enrichment topics, and even pause for short retrieval practices. Despite this, Koller understands that students don't simply learn by watching videos, so to gain a deeper understanding of the material, students need to practice, and there are numerous ways to build that into online platforms.
+
+00:10:00
+In this section, Daphne Koller discusses the range of work that can now be graded online, including the grading of math, models, and programming assignments. However, critical thinking work in humanities, social sciences, and business is still lacking for grading. To solve this, Koller and her team turned to peer grading and found that it is surprisingly effective, with student-assigned grades being highly correlated with teacher-assigned grades. Peer grading also allows for the formation of a global community of students who collaborate on questions, answers, and self-assembled study groups, creating opportunities to better understand human learning by collecting unique data on every click, homework submission, and forum post from tens of thousands of students.
+
+00:15:00
+In this section, Daphne Koller uses an example of large-scale data analysis from a course taught by her colleague, Andrew Ng, to demonstrate the power of personalized feedback in online education. She also discusses the potential of personalization, which could solve the 2 sigma problem posed by educational researcher Benjamin Bloom in 1984, and lead to improved student performance. Koller advocates for a shift from traditional lecture-based teaching methods to more active learning in the classroom, which has been shown to improve engagement, attendance, and learning outcomes in students.
+
+00:20:00
+In this section, Daphne Koller emphasizes the potential of online education to provide accessible and affordable learning opportunities to anyone, anywhere. She notes that this has the potential to democratize education and enable a wave of innovation, as talent can be found all over the world. She points out that the next big idea could come from someone living in a remote village in Africa, and if they had access to education, their ideas could make the world a better place for everyone.
+

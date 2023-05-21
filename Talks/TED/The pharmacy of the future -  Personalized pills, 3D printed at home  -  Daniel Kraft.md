@@ -1,0 +1,14 @@
+# Summary of The pharmacy of the future? Personalized pills, 3D printed at home | Daniel Kraft
+
+Dr. Daniel Kraft envisions a personalized pharmacy of the future where medication is tailored to patients through real-time medical data analysis. The use of polypills - several medications in one pill - and 3D printing technology can help solve issues with polypharmacy and low adherence. With the help of smartwatches and other tools, physicians can program personalized polypills that can be 3D printed at home. Although this technology is still in its prototype stage, it has the potential to improve patient health outcomes globally, especially in nursing homes where patients often take multiple medications and require precise dosages.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker explains the problems associated with medication and the limits of current treatments, which are often prescribed based on trial and error. To make pills more personalized and better tailored to patients, he suggests optimizing and connecting healthcare information in a more proactive way using existing technology such as smartphones, smartwatches, and connected blood pressure cuffs. By tracking health information more closely, it would be possible to implement a more dynamic dosing algorithm that could adjust based on real-time data and thus avoid adverse side effects.
+
+00:05:00
+In this section, Daniel Kraft talks about the personalized pharmacy of the future. He envisages the potential for collecting, sharing and analyzing real-time medical data to create better drug doses and medication combinations. He discusses the benefits of using the polypill, a combination of multiple medications in a single pill, and how it is now possible to 3D print personalized polypills, which can adapt to the individual, even on a daily basis. The IntelliMedicine prototype printer can print small micromeds, enabling personalized combinations of medications, with the potential to improve adherence, integrate supplements and potentially change the pharmacokinetics by layering on different elements to the micromeds.
+
+00:10:00
+In this section, Daniel Kraft speaks about the potential future of personalized medication through 3D printing. He describes the possibility of printing personalized polypills at home, programmed by physicians or cardiologists according to individual needs determined by smartwatch readings or other tools. He suggests this could solve problems of polypharmacy, low adherence, and complications associated with one-size-fits-all medication, and could improve medication adherence across the globe. Although the printers are currently just prototypes, Kraft explains that they could be used in nursing homes, a place where patients are often taking multiple medication and need personalized and precise dosage.
+

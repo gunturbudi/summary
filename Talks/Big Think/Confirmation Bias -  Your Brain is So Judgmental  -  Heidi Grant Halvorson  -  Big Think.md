@@ -1,0 +1,8 @@
+# Summary of Confirmation Bias: Your Brain is So Judgmental | Heidi Grant Halvorson | Big Think
+
+In her Big Think video, Heidi Grant Halvorson explains the confirmation bias and the primacy effect, which are common biases that shape the way people perceive others. Confirmation bias occurs when the brain only accepts information that confirms an initial impression of someone, while the primacy effect shapes our understanding of a person after the first impression. Overcoming these biases is difficult, but achievable through the tortoise method, which involves overwhelming the person with an abundance of information that contradicts their initial impression, or the hare method, where an outcome dependency is created for the person to be accurate about the other person to achieve a shared goal.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the confirmation bias and the primacy effect, which are common biases that affect how people perceive others. The confirmation bias occurs when the brain looks for information that confirms initial impressions of the person while ignoring everything else, while the primacy effect means that first impressions shape our understanding of someone afterward. It is difficult to overcome these biases, but one can work on the tortoise and hare methods. The tortoise method involves overwhelming the person with an abundance of information that contradicts their initial impression, while the hare method creates an outcome dependency where the person becomes interested in being accurate about the other person to achieve a shared goal.
+

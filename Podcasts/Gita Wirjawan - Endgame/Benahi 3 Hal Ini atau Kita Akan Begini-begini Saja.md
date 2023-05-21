@@ -1,0 +1,25 @@
+# Summary of Benahi 3 Hal Ini atau Kita Akan Begini-begini Saja
+
+Source: https://youtube.com/watch?v=mdg1082XvlM
+
+The speaker in "Benahi 3 Hal Ini atau Kita Akan Begini-begini Saja" emphasizes the importance of peace and stability as a pre-condition for economic prosperity. He compares the FDI of different countries, where Singapore's FDI is significantly higher than other countries in Southeast Asia. The speaker also emphasizes the importance of enforcing rules and regulations and the role of the rule of law in establishing predictability for sustainable institutional building and inclusivity. He discusses the need for STEM-related education to ensure continued growth and development in science and technology. Additionally, the speaker highlights the untapped potential of Indonesia's citizens, specifically discussing language learning and expanding mindsets. He discusses the shift in politics, which has become an arena for those who are attracted to power rather than a sense of service or moral responsibility. Finally, the speaker emphasizes the importance of education and suggests encouraging a similar cultural emphasis on education in other cultures while mitigating the effects of social media polarization through decentralized institutions.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the importance of peace and stability in Southeast Asia and how it is a pre-condition for economic prosperity in the region. He compares the various countries in Southeast Asia, using FDI as a metric and notes that Singapore has consistently delivered on essential things that are crucial for liberal democracy. Singapore has been able to provide other essential public goods in a rather better manner than most countries in Southeast Asia. One metric that he uses is FDI on a per capita per year basis, and he highlights that Singapore's FDI is $19,000 per capita per year, while Indonesia's, the Philippines', Thailand's, and Vietnam's FDI range is between $100 and $400 per capita per year.
+
+00:05:00
+In this section, the speaker emphasizes the importance of enforcing rules and regulations and the role of the rule of law in establishing predictability for thriving economies. Countries, such as Singapore, that position themselves as a nation of law tend to have a better intersection between talent and power, which leads to more sustainable institutional building and inclusivity. The speaker suggests that productivity and purchasing power parity are key metrics in evaluating a country's implementation of elements of a liberal democracy.
+
+00:10:00
+In this section, the speaker discusses the importance of STEM-related education and its impact on science and technology. The speaker highlights that providing education can lead to a significant impact and growth in technology, which plays a crucial role in the education sector. The speaker emphasizes the need to prioritize STEM-related education to ensure continued growth and development in science and technology.
+
+00:15:00
+In this section of the video, the speaker discusses Indonesia's potential for growth and prosperity if individuals were provided with the tools to break down barriers. He emphasizes that despite low proficiency levels of English and passport ownership, there is potential for growth by investing in language learning and expanding individuals' mindsets. He shares a personal example of how a man was able to transform his abilities to speak English in only three months and create a better standard of living for his family, ultimately leading to greater confidence and a sense of empowerment. Despite structural impediments and challenges in aligning for power, the speaker remains optimistic about the untapped potential of Indonesia's citizens.
+
+00:20:00
+In this section, the speaker discusses how politics has become an arena for those who are attracted to power rather than a sense of service or moral responsibility. He shares a story of a friend who willingly puts up with the terrible pay, constant attacks, and lack of privacy simply for the sake of power. This shift is a departure from the 19th-century dynamic where politicians went into public life with an ethic of service. The speaker notes that human societies naturally tend to favor family ties rather than merit, which is why institutions, such as China's emphasis on education, are necessary to promote meritocracy.
+
+00:25:00
+In this section, the speaker discusses the importance of education and how it is deeply embedded in Chinese culture, and he suggests encouraging a similar cultural emphasis on education in other cultures. However, he also highlights the complication of social media, which he says has polarized ideas and sensationalized leadership. He predicts that this will lead to a future where the quality of leadership is undermined in various sectors, including academia, entrepreneurship, policy, and politics. To mitigate this, he suggests relying on decentralized institutions, including the legal system, to reign in the power-hungry people who control them.
+

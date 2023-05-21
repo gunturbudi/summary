@@ -1,0 +1,14 @@
+# Summary of What a Living Whale Is Worth -- and Why the Economy Should Protect Nature | Ralph Chami | TED
+
+Financial economist Ralph Chami explains in a TED talk that living whales have no economic value in the current system despite their crucial role in fighting climate change, which puts them at risk. He set out to value the carbon sequestration service of whales and discovered that the discounted present value of the lifetime earnings of a single whale is at least three million dollars. Chami applied the same methodology to elephants and water-based systems, such as seagrass and wetlands, revealing that they also have enormous financial value to humans. He emphasizes the need for science, accounting, and legal framing to create an economy that protects nature through the sale of carbon offsets and the creation of markets around nature in a regenerative view.
+
+Detail Summary: 
+00:00:00
+In this section of the video, financial economist Ralph Chami explains the important role that whales play in capturing carbon from the atmosphere through their eating, pooping, and fertilizing of phytoplankton. He notes that a single whale can store 7-9 tons of carbon on its body and that its poop fertilizes the phytoplankton, which in turn captures even more carbon. However, Chami points out that despite their vital role in fighting climate change, living whales have no economic value in the current system, which puts them at risk from pollution, entanglements, and ship strikes.
+
+00:05:00
+In this section, Ralph Chami discusses how he and his team set out to value the carbon sequestration service of whales by tracking their lifetime earnings and multiplying that by the price of carbon. He reveals that the discounted present value of the lifetime earnings of a single whale is at least three million dollars. He applies the same methodology to elephants and deduces that their carbon sequestration service has an estimated value of 2.6 million dollars. Moving on to water-based systems such as seagrass and wetlands, he notes that their carbon sequestration service is valued at 2.3 trillion dollars globally alone. This section demonstrates that not only is nature valuable intrinsically, but it also has an enormous financial value to humans.
+
+00:10:00
+In this section, Ralph Chami discusses the three pillars necessary for creating an economy that protects nature: science, accounting, and legal framing. He explains how ecosystems and their services, such as elephants in Gabon capturing carbon in the trees, can be monetized through the sale of carbon offsets. Chami emphasizes that the legal framing is crucial to protect the rights of nature and the stewards of nature (i.e. local and indigenous populations) who are responsible for conservation. The creation of markets around nature in a regenerative view, not an extractive one, can benefit the environment, the government, and the economy.
+

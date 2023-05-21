@@ -1,0 +1,11 @@
+# Summary of Can we stop climate change by removing CO2 from the air? | Tim Kruger
+
+Tim Kruger acknowledges the need to remove carbon dioxide from the atmosphere in addition to reducing emissions, and suggests a "silver buckshot" approach of combining multiple ideas such as using plants, large machines, and his own independent idea of using natural gas to generate electricity. However, he notes that this solution would require a "defense-sized expenditure" and trillions of tons of CO2 removal in the decades ahead. Kruger emphasizes the need for ambition without arrogance, and that we must start taking action to counter climate change even if future generations will have to continue the effort. The discussion also touches on the idea of putting lime in the ocean to counter ocean acidification and absorb CO2 through responsible experiments and social acceptance.
+
+Detail Summary: 
+00:00:00
+In this section of the video, Tim Kruger acknowledges that reducing emissions is not enough to stop climate change and that we need a way to remove carbon dioxide from the atmosphere. Kruger gives several ideas such as using plants to take CO2 out of the atmosphere and storing it underground, building large machines that can scrub CO2 from the air, and his own independent idea of using natural gas to generate electricity in a way that takes carbon dioxide out of the air. He proposes that combining all these ideas in a "silver buckshot” approach may be the best solution. However, doing so would require trillions of tons of carbon dioxide to be removed from the atmosphere in the decades ahead and "defense-sized expenditure."
+
+00:05:00
+In this section, the speaker discusses the need to face the consequences of climate change and our efforts to counter it. He emphasizes the importance of reducing emissions and the speculation around the idea of curing climate change by removing CO2 from the air. He suggests that we need ambition without arrogance and that we must start in the hope that future generations will be able to finish the job. Later in the talk, the speaker and host discuss the idea of putting lime in the ocean to counter ocean acidification and absorb CO2, but agree that it must be done through small, responsible experiments and with the social license to operate.
+

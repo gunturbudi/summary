@@ -1,0 +1,11 @@
+# Summary of Joy Sun: Should you donate differently?
+
+Joy Sun advocates for the benefits of unconditional cash transfer as a way to break the mold of old aid systems. She suggests using payment technology to send money directly to the mobile accounts of the world's poorest people without intermediaries. This method has been successfully implemented by GiveDirectly, the first organization that is exclusively dedicated to providing cash transfers to the poor. Evidence shows that people invested in their local economies and businesses and prioritized material and spiritual needs. Sun argues that giving cash directly to the poor can be more efficient and free of corruption than traditional forms of aid. Instead of just doing some good, organizations should focus on proving that they are doing more good for the poor than the poor can do for themselves.
+
+Detail Summary: 
+00:00:00
+In this section, Joy Sun talks about the benefits of unconditional cash transfer, where cash is given with no strings attached to the world's poorest people. She highlights the flaws of old aid systems and how cash transfers can break the mold. Sun suggests using payment technology in poor countries to disrupt aid and reach billions of the world's poorest people quickly by sending money directly to their mobile accounts with no intermediaries, as has been done in GiveDirectly, the first organization dedicated to providing cash transfers to the poor. The evidence shows that people invested in their local economies and businesses, spending on material needs such as food, equipment, and household improvements, and prioritizing spiritual needs such as coffins for elderly recipients.
+
+00:05:00
+In this section, the speaker discusses a new way of donating to the poor that involves giving cash directly to them. She explains the process of finding the poorest families and using technology to gather their information and verify their need. The speaker argues that giving cash directly to the poor can be more efficient and free of corruption than traditional forms of aid. She suggests that organizations should focus on proving that they are doing more good for the poor than the poor can do for themselves, rather than just doing some good. While giving cash cannot create public goods, it can set a higher standard for improving the lives of individual families.
+

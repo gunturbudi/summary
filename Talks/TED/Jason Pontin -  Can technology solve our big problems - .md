@@ -1,0 +1,11 @@
+# Summary of Jason Pontin: Can technology solve our big problems?
+
+Jason Pontin discusses the decreasing belief in technology solving big problems such as space exploration as people favour smaller, commercialized products. He challenges the popular notion among Silicon Valley that venture capitalists no longer support transformational ideas, suggesting that other factors such as political systems and lack of technological understanding are also reasons for this lack of innovation. Pontin believes technology can address big problems, but political and institutional support, problem understanding, and strictly technological problems must align for it to succeed. Finally, he notes that the Apollo mission is a metaphor for technology's ability to solve problems, but it is not a replicable model.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker reflects on how the Apollo program was a significant event in human history and how it represented a time when people believed that technology had an unlimited capacity to solve problems. Despite the fact that the technological advancements of that time seemed boundless, no one has traveled faster than the crew of Apollo 10 since 1970, and technological potential has become more limited. The speaker attributes this to a shift in focus from solving problems to commercializing less ambitious products, such as iPhones and algorithms.
+
+00:05:00
+In this section, Jason Pontin argues that the inability to solve big problems through technology is due to complex reasons. He challenges the commonly held belief in Silicon Valley that venture capitalists no longer fund transformational ideas, pointing out that they have always preferred smaller investments with a shorter exit timeline. Other reasons for the lack of solutions include political systems, lack of understanding the problem, and some problems not being strictly technological. Pontin states that we can solve big problems with technology, but there must be a combination of factors, including political and institutional support, understanding the problem, and it must be a technological problem. He notes that the Apollo mission is a metaphor for technology's ability to solve big problems, but it is not an easily replicable model.
+

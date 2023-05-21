@@ -1,0 +1,11 @@
+# Summary of Nancy N. Chen: The inaccurate link between body ideals and health | TED
+
+In her TED talk, medical anthropologist Nancy N. Chen emphasizes the historical shift of body ideals towards thinness in Western societies, which has led to an increase in body dysmorphia and eating disorders. She highlights the importance of recognizing body diversity as a critical component of social diversity, equity, and inclusion, and suggests that we need to shift our focus towards what is happening inside our bodies in order to achieve better health and collective well-being. Ultimately, the goal is to harmonize our bodies with our environment and each other to experience vitality together.
+
+Detail Summary: 
+00:00:00
+In this section, Nancy N. Chen, a medical anthropologist, discusses the historical shift in body ideals that has occurred in Western societies. Throughout the 20th century, the ideal female body type shifted from being curvy and full-figured to one that is thin and has a low waist-to-hip ratio. This increased focus on thinness has led to a rise in body dysmorphia and eating disorders around the world, as thinness has become associated with well-being and prestige. However, it is important to note that not all societies share this ideal, and some communities, such as those in Jamaica, value plump bodies, which are seen as healthy and desirable. Additionally, the global reach of media and capitalism has led to the proliferation of new forms of thinness, with lean and muscular bodies now being pursued across gender, age, income, and locations.
+
+00:05:00
+In this section, Nancy N. Chen discusses the harm caused by the conflation of appearance with health and advocates for retraining social lenses on systemic ideals. She highlights the importance of body diversity and how it's being recognized as a critical component and reflection of social diversity, equity, and inclusion. Chen suggests that rather than focusing on outer body features, we need to consider how healthy bodies are based on what's going on inside, such as the immune system and microbiome, and to harmonize our bodies in relation to our environment and each other to experience better health and collective well-being. Ultimately, we can heal and thrive by looking within ourselves and seeing vitality together.
+

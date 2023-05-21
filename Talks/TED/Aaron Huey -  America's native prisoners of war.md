@@ -1,0 +1,17 @@
+# Summary of Aaron Huey: America's native prisoners of war
+
+Aaron Huey's TED Talk explores the history of the Lakota nation and its people's forced migration to prisoner-of-war camps or reservations, due to broken treaties and massacres committed by white colonizers. Huey notes the devastating impact these events continue to have on Native American communities today, leading to high rates of poverty, disease, and lack of basic resources. He emphasizes the importance of acknowledging this history and taking action to address ongoing injustices, including returning the Black Hills to the Lakota and honoring treaty agreements. Huey's call to action receives applause from the audience.
+
+Detail Summary: 
+00:00:00
+In this section, Aaron Huey provides a brief history of the Lakota nation and how they were moved off their land and into prisoner-of-war camps, now known as reservations. Huey explores the difficult relationship he has with the community as a white person, or "wasichu," which means non-Indian or greedy. Huey also gives a timeline of the treaties made, treaties broken, and massacres disguised as battles involving the Lakota, demonstrating how the US government's dealings with Native Americans set an early tone of aggression. He notes that these photographs of the Lakota represent not only them but all indigenous people who suffered at the hands of the colonizers.
+
+00:05:00
+In this section, the history of Native Americans after 1871 is discussed. The end of treaty-making led to gold being discovered in Lakota territory in 1874, which saw a surge of white settlers violate the Fort Laramie Treaty, causing the Lakota War in 1875. The following year, Custer's 7th Cavalry was defeated at the Battle of Little Big Horn, and by 1877, Chief Crazy Horse had surrendered, and 'Sell or Starve' campaigns were put in place to further dismantle Native lands. The 1887 Dawes Act saw communal ownership of reservation lands end, with tribes losing millions of acres, and the surplus land being sold to white ranchers. The most important event took place in 1890 with the Wounded Knee Massacre, signifying the end of Native American wars in which women and children were indiscriminately slaughtered, and a new era of Native oppression began.
+
+00:10:00
+In this section, the video highlights the devastating statistics that affect the Native population today, with high rates of unemployment, disease, poverty, and lack of basic resources. These issues stem from a legacy of colonization, forced migration, and treaty violations that continue to be ignored by the dominant society. Aaron Huey questions how much the current society should own of this history and notes that the "fix" is much more difficult than simple donations or aid, but it is crucial to acknowledge and take action on ending this ongoing oppression. The United States still daily violates the terms of the Fort Laramie Treaties with the Lakota, and it is time for a call to action to address and heal the injustices of this past and present trauma.
+
+00:15:00
+In this section, Aaron Huey shares his TED wish for America to honor the treaties and give back the Black Hills. He emphasizes that it is not the government's business what the Native American tribes do with their land, and that they should have the right to self-determination. This is particularly important considering the history of broken promises and forced removals that Native American communities have faced. Huey's impassioned plea is met with applause from the audience.
+

@@ -1,0 +1,14 @@
+# Summary of How to disagree productively and find common ground | Julia Dhar
+
+Julia Dhar aims to help people learn how to disagree productively and find common ground by introducing the concept of formal debate, where people argue for or against an idea in a mutually respectful way that assumes a genuine desire to persuade and be persuaded. Dhar emphasizes the importance of separating ideas from identity and finding common ground, suggesting that public conversations and private disagreements can be transformed by debating ideas. Additionally, practicing intellectual humility through debates can make people better decision-makers, evaluators of evidence, and more objective. Dhar encourages incorporating structured debates into events and meetings to encourage open conversation over controversial ideas.
+
+Detail Summary: 
+00:00:00
+In this section, Julia Dhar shares her mission to help people disagree productively and find ways to bring truth to light and new ideas to life. She introduces the formal debate, where people argue for or against an idea in a mutually respectful way that assumes a genuine desire to persuade and be persuaded. Dhar explains that successful persuasion comes from finding common ground by separating ideas from identity and being genuinely open to persuasion. Thus, debate requires direct and respectful engagement with conflicting ideas through rebuttal, which starts by identifying something that everyone can agree on, creating shared reality.
+
+00:05:00
+In this section, the speaker emphasizes the importance of face-to-face interactions and debate to humanize controversial arguments, and suggests that structured debates should be incorporated into events and meetings to encourage open conversation over the biggest and most controversial ideas. Further, the speaker argues that ideas should be separated from the identity of the person discussing them, and that debates should focus on the best, clearest, and least personal version of the idea. The speaker suggests that public conversations and private disagreements can be transformed by debating ideas rather than discussing identity, and that individuals must open themselves up to the possibility that they might be wrong to facilitate productive disagreements.
+
+00:10:00
+In this section, Julia Dhar explains the benefits of practicing intellectual humility through debates. Debates allow people to argue for and against certain positions, which flips a cognitive switch and allows individuals to empathize with their opposition. This humility is a skill that makes people better decision-makers, evaluators of evidence, and more objective. Dhar suggests asking each other what we have changed our minds about and what uncertainty we are humble about. Additionally, Dhar suggests bringing the practice of debate to workplaces, city council meetings, and conferences, empowering people to start listening, persuading, and opening their minds.
+

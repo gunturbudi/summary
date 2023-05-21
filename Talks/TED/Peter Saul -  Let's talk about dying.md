@@ -1,0 +1,14 @@
+# Summary of Peter Saul: Let's talk about dying
+
+In his talk, "Peter Saul: Let's talk about dying," Dr. Peter Saul discussing how a lack of communication about end-of-life preferences is exacerbating the issues that arise when people die. He outlines the four ways that people typically die, with the biggest industry being a decline in capacity and increasing frailty, and notes that a cultural issue makes it difficult to talk about dying. Saul presents his ideas for changing the way we approach death, with a small idea of speaking to elders and the dying to understand their preferences and a larger idea for a movement that offers alternative options for dying. He argues against euthanasia and highlights the importance of giving people more control over their dying process.
+
+Detail Summary: 
+00:00:00
+In this section of the talk, Dr. Peter Saul explores the taboo subject of dying and how it's shaping up to be a "train wreck" for most of us unless something changes. While technology and medicine have helped reduce the death rate for males in Australia, it's only prolonged lives and redirected death, not necessarily saved them on a permanent basis. As a result, people are now dying from diseases that we no longer know how to handle, requiring a big shift in the way we approach death. Even fewer people have plans in place for when their hearts stop beating or if they become seriously ill, highlighting a lack of dialogue around dying in society.
+
+00:05:00
+In this section, the speaker describes the problem of a lack of conversation about end-of-life preferences in medical records, leading to people being unprepared for how they might die. He then outlines the four ways people typically die, with the biggest growth industry being the dwindling of capacity accompanied by increasing frailty. As we live longer, this means more old age, not more youth. The speaker explains a cultural issue where people don't want to talk about death, and the success of the Respecting Patient Choices programme in training hundreds of people to talk to patients about their preferences. However, the programme was discontinued after the funding ran out, highlighting the difficulty of addressing the cultural issue around death.
+
+00:10:00
+In this section of the video, Peter Saul presents his small and big ideas about how to change the way we approach death. His small idea is to engage in conversations with elders and people approaching death in order to understand their preferences in medical treatment and to have control over who speaks on their behalf. His big idea is to create a movement that reclaims the dying process from the medical establishment and offers alternative options like "Peace, Love, Natural Death." He argues against euthanasia and suggests that we should focus on giving people more control over their dying process rather than making it a binary of life or death.
+

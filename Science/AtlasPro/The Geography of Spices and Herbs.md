@@ -1,0 +1,16 @@
+# Summary of The Geography of Spices and Herbs
+
+Source: https://youtube.com/watch?v=E1mMgwp7iaE
+
+"The Geography of Spices and Herbs" discusses the role of geography in the growth and use of spices and herbs in different regions of the world. Spices are plants' defense mechanisms against herbivores, and humans benefit from their antibacterial and antifungal properties, which help to preserve food and mask flavor due to rot. Warmer regions tend to have a greater variety of spices due to faster bacterial growth, while colder regions use less spice for natural preservation. Various spices and herbs have originated from different parts of the world, such as black pepper, turmeric, and cinnamon from India and Southeast Asia, paprika, vanilla, and cacao from Mexico, and bay leaf, lavender, and mint from the Mediterranean.
+
+Detail Summary: 
+00:00:00
+In this section, we learn about the vital role geography plays in the growing and usage of spices in foods. Spices essentially act as a defense mechanism for plants against herbivores, with the most common defense being stored poisons in their bodies. For humans, these poisons just taste interesting, as we have a much higher tolerance than the smaller organisms these chemicals target. Spices have the added benefit of killing bacteria and fungus that grow on our food, helping to prolong the window in which it can be eaten, as well as mask any bad flavor due to rot. The use of spice didn't happen evenly across human populations, with greater quantities and diversity of spices typically being used in tropical and subtropical areas to counteract higher rates of bacterial growth, while colder areas added less spice due to natural preservation.
+
+00:05:00
+In this section, we learn about the origins of various spices and herbs around the world. The tropics are known for having a greater and more diverse arsenal of spices due to the plants' chemical defenses and the faster growth of bacteria and fungi in warmer conditions. India and Southeast Asia are home to many popular spices like black pepper, turmeric, and cinnamon while cloves, nutmeg, and mace originated from the Maluku islands in Indonesia. Mexico was where paprika, vanilla, and the cacao tree, which was first domesticated by the Olmec or Mo Kaya people, originated. The Mediterranean was the hotspot for spices like bay leaf, lavender, and mint, which has a pungent smell that keeps other pests away. Mustard plants, including those used for making the popular condiment, and oregano also have their roots in the same region.
+
+00:10:00
+In this section, we learn about the origins of various spices and herbs. Wild oregano originated in Greece, and its name comes from the Greek words meaning "mountain" and "joy." Saffron is one of the most expensive spices due to the part we use as a spice coming from the elongated stigmas of the flower, which usually only yield a couple per flower. Cayenne peppers come from the French Guiana in South America, and garlic originated in Central Asia where Kazakhstan, Kyrgyzstan, and the Chinese Jian Shan mountains meet. The spice sassafras comes from the root of a tree that was used to flavor root beer. Lastly, we have the spice melange, which is native to and only grows on the desert planet of Arrakis.
+

@@ -1,0 +1,8 @@
+# Summary of How to embrace emotions at work | The Way We Work, a TED series
+
+In "How to embrace emotions at work | The Way We Work, a TED series", the speaker emphasizes the significance of acknowledging emotions in a workplace, rejecting the misconception that emotions don't belong in a professional environment. Research indicates that employees trust their colleagues more when they let their professional guard down, enhancing connection and productivity. The speaker advises practicing selective vulnerability, a balance between oversharing and under-emoting that promotes psychological safety. Moreover, the speaker presents four ways to implement this approach, such as understanding the need behind emotions and providing actionable support. By embracing emotions in a healthy manner, employees foster honesty, productivity, and long-term commitment to their companies.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the importance of embracing emotions at work, debunking the myth that they don't belong in a professional setting. Research shows that employees are more likely to believe their colleagues when they drop their professional persona, leading to greater connection and productivity. However, it's important to find a balance between oversharing and under-emoting, which can lead to an unhealthy workplace. The solution is selective vulnerability, where workers can open up while prioritizing stability and psychological safety. The speaker provides four ways to get started, including understanding the need behind your emotions and providing actionable support for your colleagues. By embracing emotions in the workplace, employees can be more honest and productive while staying with the company for the long term.
+

@@ -1,0 +1,17 @@
+# Summary of Why city flags may be the worst-designed thing you've never noticed | Roman Mars
+
+In this video, Roman Mars discusses the importance of good design principles for city flags, using examples of well-designed flags such as the Chicago flag, and poorly designed flags such as the San Francisco flag. He outlines the five basic principles of flag design, which are simplicity, meaningful symbolism, using two to three basic colors, no lettering or seals, and being distinctive, and suggests that many US city flags fail to follow these principles. Mars argues that well-designed flags are important as they can be a powerful symbol of civic pride and a reflection of how a city considers design itself.
+
+Detail Summary: 
+00:00:00
+In this section, Roman Mars talks about his obsession with flags and how they work on people's emotions. He believes that once you understand the design of flags - what makes a good flag, and what makes a bad flag - you can understand almost anything. He talks about the five basic principles of flag design, according to the North American Vexillological Association, which are to keep it simple, use meaningful symbolism, use two to three basic colors, no lettering or seals, and be distinctive or be related. He applies these principles to the Chicago flag, which is widely popular across the city and emblematic of the city's identity.
+
+00:05:00
+In this section, the speaker talks about the importance of following certain principles of design when creating a flag for a city. He uses examples of different city flags, such as the Chicago flag, which has become a symbol of civic pride due to its distinct design and meaning. On the other hand, he critiques the San Francisco flag for its complexity, lettering, and the use of a phoenix symbol. The speaker then highlights the five basic principles of flag design, which include simplicity, meaningful symbolism, using two to three basic colors, no lettering or seals, and being distinctive. Despite the importance of good design principles, many US city flags fail to follow these. Municipal seals, in particular, do not work well when used on flags since they are designed to be read at a close distance.
+
+00:10:00
+In this section, Roman Mars highlights the differences between well-designed city flags and poorly-designed ones. He cites the Amsterdam flag with its badass design and the Milwaukee flag with its "kitchen sink" elements as an extreme example of poor design. Steve Kotas, a graphic designer, is trying to redesign the Milwaukee flag, but previous redesigns have failed to sway the Milwaukee Arts Board. To design a great flag, Mars suggests starting with a one-by-one-and-a-half-inch rectangle, as it forces one to think about the design elements relative to the size of the flag. Ted Kaye suggests removing the San Francisco flag's name and motto and emphasizing the phoenix and its flames. Finally, Mars ends by presenting two alternative flag designs that are much better than the current San Francisco flag.
+
+00:15:00
+In this section, Roman Mars argues that city flags are an important design consideration for cities, as they're not only a symbol of the place, they're also a reflection of how the city considers design itself. A well-designed flag could indicate how a city feels about all of its design systems, including transit and signage. Often neglected by city leaders, a great city flag could give the populace a banner to rally under, to face the more important things together. A good city flag can be powerful and inspire civic pride.
+

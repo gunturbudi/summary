@@ -1,0 +1,14 @@
+# Summary of Why we have too few women leaders | Sheryl Sandberg
+
+Sheryl Sandberg’s TED Talk “Why we have too few women leaders” highlights the fact that although women have more opportunities and basic rights than their predecessors, they still face challenges in advancing to leadership roles. She emphasizes that women must adapt to a more assertive mindset, take up a seat at the table, and ensure their voices and opinions count in decision-making processes. Sandberg also discusses how women underestimate their abilities, negotiate less for salaries compared to men, and face a dilemma between personal goals and professional success. She encourages women to own their successes, negotiate for themselves, and continuously strive to reach their full potential. Sandberg believes that a more gender-diverse world would be a better world.
+
+Detail Summary: 
+00:00:00
+In this section, Sandberg highlights the lack of female representation in higher positions across various sectors, from politics to the corporate world. She emphasizes that although women have more opportunities and basic rights than their predecessors, they still face a real issue in advancing to leadership roles. Women also have to face tough decisions between personal goals and professional success. Sandberg shares three messages for women striving to remain in the workforce - sit at the table, make your partner a real partner, and don't leave before you leave. She believes that women must adapt to a more assertive mindset and take up a seat at the table, ensuring their voices and opinions count in decision-making processes.
+
+00:05:00
+In this section, Sandberg discusses how women tend to systematically underestimate their abilities and negotiate less for salaries compared to men. Men attribute their success to themselves, while women tend to attribute it to external factors. The speaker states that women’s likeability is negatively correlated with their success, which is not the case for men. Sandberg suggests that we need to encourage women to own their successes and negotiate for themselves while being aware of the sacrifices they will make in a world where men do not have to make such trade-offs. The talk concludes with a story about a woman who learned to keep her hand up even if men were still asking questions, highlighting how we need to be vigilant as managers and colleagues to ensure women have equal opportunities.
+
+00:10:00
+In this section, Sandberg urges women to "sit at the table" by being more self-confident and taking the risk to pursue their goals. She also highlights the importance of men being involved at home and in caregiving, while reiterating that women should not lean back and continuously strive to reach their full potential, especially before actually having children. She acknowledges that this would be a monumental task, but posits that a more gender-diverse world would be a better world.
+

@@ -1,0 +1,14 @@
+# Summary of A shark-deterrent wetsuit (and it's not what you think) | Hamish Jolly
+
+Hamish Jolly discusses the development of a shark-deterrent wetsuit that is based on scientific research about what sharks can see. They collaborated with experts in shark vision and neurology at the University of Western Australia to design wetsuits that would mitigate the risk of shark attacks. They used computer modelling and tested the wetsuits with tiger sharks and great white sharks using a perforated drum submerged in the water. The results were encouraging, and the wetsuit is now being used by surfers and divers all over the world. Jolly emphasizes the importance of independent testing and transparent publication, and suggests that science should not only be used for invention but also for translation.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the development of a shark-deterrent wetsuit based on the science of what sharks can see. The idea came from a conversation with a naturalist who suggested banding a black wetsuit with yellow stripes to mimic the warning patterns of marine species. The speaker researched the idea and found that many species use warning patterns as a way to ward off predators. They then collaborated with experts in shark vision and neurology at the University of Western Australia to develop a wetsuit that would mitigate the risk of shark attacks. The result was a wetsuit with a blue and white pattern that is now being used by surfers and divers all over the world.
+
+00:05:00
+In this section, Hamish Jolly discusses the process of designing wetsuits that deter sharks. The team used computer modelling to understand how the wearer would appear to a shark in different light and water conditions. They then designed wetsuits based on two key characteristics - patterns that would hide the wearer and patterns that would create contrast but break up their profile. Ray Smith, a designer and surfer, was tasked with designing wetsuits that were both practical and aesthetically pleasing. The team then tested these wetsuits with tiger sharks and great white sharks using a perforated drum submerged in the water. The results of the testing were encouraging, with the sharks displaying reluctance towards the wetsuits designed with the SAMS technology patterns.
+
+00:10:00
+In this section, the speaker explains that it's important for their shark-proof wetsuit to be tested independently by the University of Western Australia subjected to peer reviews and publication for transparency. The company is a biotechnological licensing firm, and they will license others to create the wetsuits. The speaker then introduces two surfers while noting that the company has used biological evidence, human anecdotal evidence, and science to create the product. He further suggests that science should not always be used solely for invention but instead can serve as a tool for translation.
+

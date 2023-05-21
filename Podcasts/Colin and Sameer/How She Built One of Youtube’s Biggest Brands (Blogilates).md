@@ -1,0 +1,22 @@
+# Summary of How She Built One of Youtube’s Biggest Brands (Blogilates)
+
+Source: https://youtube.com/watch?v=fyh2-2qXSLI
+
+Cassie Ho, creator of the successful YouTube channel Blogilates, built her fitness empire through social media with a business model that provides a different mentality towards entrepreneurship. Her revenue is almost entirely driven by sales of her own merchandise, making her unique in the world of YouTube creators and entrepreneurs. Cassie emphasizes the importance of building a community and providing quality products rather than relying solely on marketing tactics. The section also touches upon how Shopify can be a useful tool for creators to build their businesses and discusses her licensing partnership with Target. Overall, Cassie hopes to continue designing and growing her brand to compete with some of the biggest activewear designers in the space.
+
+Detail Summary: 
+00:00:00
+In this section, we learn about how Cassie Ho built her Fitness Empire through social media. Cassie's revenue is almost entirely driven by the sales of her own merchandise, making her unique in the world of YouTube creators and entrepreneurs. Starting as a Pilates instructor, Cassie went on to found two eight-figure businesses built on her YouTube channel. Cassie emphasizes the importance of building a community and serving those in it. She started making sales from social media when people in her community asked if she could make a shirt with her screen name on it. Having built her Fitness Empire through social media, Cassie now does around 100 million views a month from shorts alone, and her business model provides a different mentality towards entrepreneurship.
+
+00:05:00
+In this section of the video, the host and guest discuss the challenges of monetizing merchandise as a YouTube creator, as well as Blogilates' journey towards becoming a successful clothing brand. They also touch upon how there wasn't a roadmap to monetization at the time and how Blogilates ended up becoming a brand brand. The guest, Cassie Ho, shares that each of her two brands is now an eight-figure business and how building a community ended up supporting her childhood dream of becoming a fashion designer. She discusses her love for designing and how she sketches nearly every day, with her designs converting to millions of dollars in sales.
+
+00:10:00
+In this section, the video discusses how creators can turn to Shopify to build their businesses. Shopify is designed with creators in mind and offers tools like Link Pop, a shoppable link and bio tool, to make selling products easier. The section then shifts to a discussion with Candy Ho, the founder of the Blogilates fitness brand. She talks about her journey in creating her brand and how short-form content on platforms like TikTok helped her rediscover a passion for creating. She also discusses how she is branching out into the world of fashion design and how scary it can be to reinvent oneself on YouTube. Despite some pushback, she remains true to what she wants to create and is confident in her product designs.
+
+00:15:00
+n this section, Cassey Ho, the creator behind the successful YouTube channel Blogilates, discusses her licensing partnership with Target and the importance of being a product-first creator. Ho explains that her licensing deal was a chance to have her products sold in Target stores, allowing her to gain credibility and increase her reach to a wider audience. She also emphasizes the importance of building trust with the audience and legitimizing herself as a designer rather than just a fitness instructor. She advises potential creators to prioritize the product and use media distribution to build their brand, pointing to examples such as Chamberlain coffee and prime or feastables as successful brands built through content.
+
+00:20:00
+In this section, Cassey Ho, the creator of the fitness brand Blogilates, discusses the importance of developing a good product that people will actually love and talk about, as opposed to relying solely on marketing tactics. She emphasizes the value of creating content that shows the why behind her product, and how her business has grown from people's curiosity. She also mentions her plans to continue designing and growing her brand, and hopes to one day compete with some of the biggest activewear designers in the space. Overall, she is focused on living her dream and doing what she loves every day.
+

@@ -1,0 +1,14 @@
+# Summary of How Africa can use its traditional knowledge to make progress | Chika Ezeanya-Esiobu
+
+Chika Ezeanya-Esiobu, a Nigerian researcher and academic, advocates for the incorporation of traditional African knowledge into education, research, policy, and various sectors and industries in order to facilitate Africa's transformation. She shares her own experiences of the disconnect between traditional knowledge and formal education in Africa, and discusses the power of traditional knowledge systems in modern times. Ezeanya-Esiobu highlights the success of Rwanda's traditional judicial system, Gacaca, as an example of how traditional knowledge can be applied to contemporary issues. Ultimately, she calls for the acknowledgement and integration of Africa's indigenous knowledge to foster progress and change the mindset of a people used to being told how to think and what to do.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker shares how her experience with an alphabet sheet being sold on the streets of East Africa reminded her of the disconnect between traditional knowledge and Western education in Africa. Growing up in a financially comfortable family, the speaker struggled with reconciling her reality with the formal education she received, which featured examples like "A is for apple," an exotic fruit in her environment. She argues that education should fulfill the major function of introducing learners to an appreciation of their own environment and inspiring curiosity to add value to it.
+
+00:05:00
+In this section, Chika Ezeanya-Esiobu recounts her experience working as a consultant for the World Bank Africa Region and how a conversation with her boss, who expressed frustration with negotiating loans in Africa, led her to discover traditional African knowledge of cultivation, specifically the Tassa technique. Through her research, Ezeanya-Esiobu discovered that Africa's curricula lacked the incorporation of traditional knowledge systems, and thus dedicated herself to advocating for its mainstreaming in education, research, policy, and across sectors and industries. Her passion for this cause arose from her realization that these traditional knowledge systems have been proven to work in modern times and succeed where western-imported practices struggle to do so.
+
+00:10:00
+In this section, Chika Ezeanya-Esiobu speaks about the power of Africa's traditional knowledge systems and how they can be incorporated into policy-making, research and education to facilitate the advancement of Africa's transformation. She highlights Gacaca, Rwanda's traditional judicial system, as an example of how traditional knowledge can be successfully applied to contemporary issues. Despite the challenges facing Africa, Ezeanya-Esiobu calls for the acknowledgement and integration of Africa's indigenous knowledge as a means of fostering progress and changing the mindset of a people used to being told how to think and what to do.
+

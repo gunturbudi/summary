@@ -1,0 +1,16 @@
+# Summary of What Made Haiti's Earthquake the Deadliest this Century?
+
+Source: https://youtube.com/watch?v=ddbkmhIKz7s
+
+The 2010 earthquake in Haiti was the deadliest natural disaster of the 21st century, despite measuring only 7 on the Richter scale. The epicenter was located just southwest of the densely populated urban center of Port-au-Prince, and Haiti’s political instability, poverty, and lack of governmental oversight resulted in shantytowns being constructed with cheap, non-earthquake proof materials. The Haitian infrastructure was insufficient, with hospitals and schools being destroyed as well as a lack of emergency response resources. This tragedy highlights the importance of emergency preparedness and the human factor that often exacerbates natural disasters.
+
+Detail Summary: 
+00:00:00
+In this section, the video explains the tectonic activity in the Caribbean region and its history of earthquakes. Hispaniola, shared by Haiti and the Dominican Republic, has been prone to earthquakes for centuries. The movements of the Caribbean and North American plates were set up to generate another quake, and in 2010, a massive earthquake struck Haiti. Despite being only a 7 on the Richter scale, it caused unbelievable destruction and claimed between 100,000 to 316,000 lives, as well as severely impacting millions of people in the country. The video explains the difference between a 7 and an 8 on the Richter scale, as well as how the earthquake in Haiti was much deadlier due to systemic factors such as racism, prejudice, and economic injustice.
+
+00:05:00
+In this section, it is explained that the Haiti earthquake of 2010 was so devastating due to the unfortunate location of the earthquake's epicenter, which was just approximately 25 kilometers southwest of the densely populated urban center of Port-au-Prince, that was home to 25% of Haiti's entire population. In addition, Haiti's history of political instability, poverty, and lack of governmental oversight caused poor and densely packed shantytowns to be constructed with cheaper materials, and without building codes requiring earthquake-proof buildings, which could absorb shock from earthquakes to prevent damage. As 72% of the people in Haiti live on less than $2 a day, they simply could not afford to build with these materials, and as a result, the earthquake was particularly deadly.
+
+00:10:00
+In this section, we learn that the 2010 earthquake in Haiti was the deadliest natural disaster of the 21st century. The country's infrastructure was woefully insufficient, and buildings crumbled upon themselves like "concrete death traps." Hospitals and schools, 60% and 80%, respectively, were destroyed, and the airport in Port-au-Prince was only "halfway operational." Haiti's officials didn't have the resources to mount a swift emergency response since many people, including UN staff, were killed or injured, and senior leadership was absent. Even outside organizations like the UN were slow to react, leading to further complications caused by the accidental introduction of cholera. The tragedy, which killed hundreds of thousands and left more injured and homeless, highlights the importance of emergency preparedness and the human factor that exacerbates natural disasters.
+

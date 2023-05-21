@@ -1,0 +1,17 @@
+# Summary of Zainab Salbi: Women, wartime and the dream of peace
+
+Zainab Salbi emphasizes the human side of war and its effects on individuals and communities. Salbi argues that recognizing the resilience, courage, and resistance of those living in war-torn societies is crucial, and highlights the role of women in keeping schools, factories, and hospitals open during conflict. Salbi calls for women and girls to be fully included at the negotiating table and invested in for lasting peace and sustainable economies. She tells stories of women who have overcome war's impact and started organizations that have made significant impacts on people's lives. Salbi concludes with a call to action for equality and representation in the pursuit of peace.
+
+Detail Summary: 
+00:00:00
+about the devastating effects of war on women, but also about their resilience and strength in the face of it. In this section of the video, Zainab Salbi shares her personal story of growing up in war-torn Iraq and witnessing the horrific effects of war, including the death of her brother's friend and his father in a missile attack. She also discusses the other side of war that is often overlooked in mainstream media – the humanity and bravery of survivors who continue to hope and dream for peace. As the founder of Women for Women International, Salbi is committed to empowering women in conflict zones and giving voice to their experiences.
+
+00:05:00
+In this section, Zainab Salbi, a humanitarian and author, highlights the aspects of war that often go unnoticed by society. She explains that while we are preoccupied with the technicalities of war, such as troop levels and weapons, we are missing the human side of things. Salbi shares the fears of those affected by war, including the fear of dying, losing loved ones, and losing oneself. She emphasizes the importance of recognizing the resilience, courage, and resistance of those living in war-torn societies, such as the individuals who kept music schools and bread-making alive during times of conflict. Salbi argues that we need to shift our focus to include the human elements of war to truly understand its effects on individuals and communities.
+
+00:10:00
+In this section, Zainab Salbi discusses the two sides of war, the one that fights and the other that keeps life going. She emphasizes that women play a crucial role in keeping schools, factories, and hospitals open, winning life and leading the back-line discussion. Salbi argues that for lasting peace, negotiations, and sustainable economies, women and girls must be fully included at the negotiating table and invested in, and we must understand peace from a toenail's perspective. Salbi also highlights the importance of investing in peace and women, not just because it's the right thing to do today, but for the future.
+
+00:15:00
+In this section, Zainab Salbi tells the story of a mother who had been impacted by war, and despite learning vocational and business skills and working to provide for her family, she was fearful that her children were still filled with hate for their enemies. Salbi highlights the importance of investing in women as a path towards peace, pointing to the success of those who have overcome similar conditions and gone on to start organizations that have made significant impacts on people’s lives. Salbi concludes with a call to action to strive towards equality and representation in the pursuit of peace.
+

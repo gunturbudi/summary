@@ -1,0 +1,14 @@
+# Summary of How architecture can create dignity for all | John Cary
+
+John Cary believes that architecture and design have the unique ability to positively impact human beings and create spaces that convey dignity and respect to all individuals. He challenges the architecture industry to shift away from a white, male, elitist profession to a more people-focused field that considers societal impact and advocates for more practices to dedicate themselves to the public good. Cary also discusses the importance of diversifying the architecture and design industry to create more equitable and dignifying buildings, landscapes, and communities. He posits that with a bit of effort and consideration, better design can make people feel valued, respected, honored, and seen.
+
+Detail Summary: 
+00:00:00
+In this section, John Cary shares a personal story about the uninspiring design of his daughter’s birthing room in a hospital, which made the moment feel misaligned and even undignifying. He notes that bad design is prevalent everywhere and posits that architecture needs to shift away from a white, male, elitist profession to a more people-focused field that considers societal impact and the unique ability of design to dignify and positively impact human beings. Cary challenges his audience to think about the spaces they inhabit and how they make them feel, suggesting that with a bit of effort and consideration, better design can make people feel valued, respected, honored, and seen.
+
+00:05:00
+In this section, John Cary discusses the importance of designing spaces in a way that conveys dignity and respect to all individuals. He believes that dignity is to design what justice is to law and health is to medicine. Cary has interviewed over 100 individuals and found that thoughtful design can make people feel valued and seen. However, he points out that many people who could benefit from good design often have the least access to it, such as homeless veterans and individuals with disabilities. Cary advocates for more practices to dedicate themselves to the public good, designing for clients like orphaned children and pregnant women, to ensure that everyone can experience good design.
+
+00:10:00
+In this section, John Cary discusses the importance of diversifying the architecture and design industry to create more equitable and dignifying buildings, landscapes, and communities. He highlights that only 15 percent of registered architects in the United States are women, and an even smaller percentage are persons of color. Cary explains that if more diverse voices were involved in creating blueprints for shared built environments, they would be more beautiful, functional, equitable, and dignifying for everyone. By recommitting architecture to the public's health, safety, and welfare, Cary believes this will pay dividends and create spaces that enhance people's dignity.
+

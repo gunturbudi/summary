@@ -1,0 +1,17 @@
+# Summary of The future of money | Neha Narula
+
+Neha Narula explores the history and nature of money, explaining that its value is collectively agreed upon and not inherent to physical objects or digital entries. While digital money has made transactions across borders easier, large institutions still create friction and restrict access to digital money. However, the future of money is programmable and removes intermediaries from the loop. Cryptocurrencies like Bitcoin are the first step in this evolution, using cryptography to secure communication and transactions. While programmable money raises concerns about illegal transactions and surveillance, it will also allow for democratization of money and innovation that will unfold in unpredictable ways.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker talks about the history and nature of money, and how it has evolved from physical objects like Rai stones to digital money. She explains that money only has value because we have collectively agreed it does, and that there is no inherent value in physical objects or digital entries on a computer. Digital money has made it easier to transact across borders and currencies, but large institutions still create friction in the system and hold back innovation. The speaker argues that our access to digital money is being restricted by gatekeepers like banks and investment firms, who have the right to say "no".
+
+00:05:00
+In this section, Neha Narula explains that the current state of digital money is much like her disorganized photo library: different services and institutions control money and they do not interoperate, resulting in high transaction costs. However, the future of money is programmable, and it removes intermediaries and institutions from the loop. Cryptocurrencies, such as Bitcoin, are digital money not run by any government or bank and are the first step in this evolution. Cryptocurrencies use cryptography to secure communication and transactions, and the Bitcoin blockchain is a global list of all transactions, run by thousands of networked computers around the world.
+
+00:10:00
+In this section, Neha Narula explains how Bitcoin miners receive new bitcoins by solving a cryptographic puzzle. As the computers attempt to solve the puzzle, they are also helping to secure the Bitcoin blockchain and add transactions to the list. While anyone can become a Bitcoin miner, professional miners use specialized hardware that is designed to solve the puzzle faster. Although the first set of cryptocurrencies is slow and cumbersome, Neha believes that the next generation will be faster, creating a world with programmable money that will change the way we pay, allocate, and decide on value. Programmable money will create a world where users can rent out their healthcare data or have a television analyze their watching habits, delivering well-priced content that fits within their budget. While the new era of programmable money is exciting, it also raises concerns about the possibility of using cryptocurrencies for illegal transactions and the effects of online transactions on surveillance.
+
+00:15:00
+In this section, the speaker addresses the trade-offs that come with new technology, stating that while the sharing economy may eliminate some jobs it will also create new forms of flexible employment. Programmable money will allow for decentralization of the financial system, leading to democratization of money and innovation that will unfold in unpredictable ways.
+

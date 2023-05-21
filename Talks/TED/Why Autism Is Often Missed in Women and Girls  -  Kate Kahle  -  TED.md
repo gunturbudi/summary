@@ -1,0 +1,14 @@
+# Summary of Why Autism Is Often Missed in Women and Girls | Kate Kahle | TED
+
+In her TED talk, Kate Kahle discusses how autism is often missed in women and girls due to gender bias and societal pressure to conform to social norms. She talks about the history of autism diagnosis and how it is misunderstood by many people today, and highlights the importance of early diagnosis and support for autistic individuals. She also emphasizes the concept of masking in autism, which can cause mental health challenges, and encourages the psychology community to conduct more research on autism in women and other minorities to better understand their experiences.
+
+Detail Summary: 
+00:00:00
+In this section, Kate Kahle, a 20-year-old woman with autism spectrum disorder (ASD), talks about the history of autism diagnosis and how it is misunderstood by many people today. As a neurodiverse condition, ASD presents different symptoms for different people, but some traits are found to be more common in women and girls. Kahle shares her personal struggles with sensory issues and heightened empathy, and highlights why she prefers to refer to her condition as autism instead of Asperger's syndrome, named after a controversial medical doctor who advocated for eugenics and sent autistic children to the Third Reich's child euthanasia and sterilization program. Despite the growing understanding of autism, studies show that the diagnosis rate of girls is much lower than that of boys, highlighting the need to improve the detection and intervention of ASD in girls and women.
+
+00:05:00
+In this section, the speaker discusses the concept of masking in autism, which is when autistic people camouflage their behavior to hide symptoms and fit in with neurotypical society. She explains that masking can lead to mental health challenges, such as depression and anxiety, and that women and girls are often better at masking and therefore diagnosed later or misdiagnosed entirely. The speaker also emphasizes the importance of early diagnosis for receiving specialized care and treatment, but recognizes that therapists and others assisting autistic people must recognize the unique challenges faced by women.
+
+00:10:00
+In this section, the speaker discusses how gender plays a significant role in how autism is experienced and diagnosed, with girls facing more societal pressure to conform to social expectations and mask their autistic behaviors. This pressure on girls and women to mask their autistic traits often leads to missed diagnoses and a lack of support. The speaker emphasizes that every individual on the autism spectrum is unique, and it is crucial to support autistic individuals' self-love and acceptance, rather than spreading fear and stigma about autism. The psychology community must also conduct more research on autism in women and other minorities to better understand their experiences.
+

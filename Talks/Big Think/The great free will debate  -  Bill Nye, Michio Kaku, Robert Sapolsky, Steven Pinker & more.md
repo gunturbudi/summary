@@ -1,0 +1,19 @@
+# Summary of The great free will debate | Bill Nye, Michio Kaku, Robert Sapolsky, Steven Pinker & more
+
+Source: https://youtube.com/watch?v=3O61I0pNPg8
+
+The great free will debate features a multitude of scholars discussing the complex concept of free will. The participants seem to agree that free will is difficult to define and understand, with some arguing that it is a myth influenced by biological factors and others suggesting that personal responsibility is essential to understanding free will. However, Robert Sapolsky argues that telling people they don't have free will can be harmful, referencing an experiment where college students who read a text claiming free will is an illusion were more likely to cheat on a puzzle. Sapolsky concludes that such claims about free will could make people less concerned about the implications of their actions and become negligent in their decision-making.
+
+Detail Summary: 
+00:00:00
+In this section, Daniel Dennett and Steven Pinker discuss the concept of free will in relation to biology and the brain. Dennett believes that our special ability to represent reasons to ourselves and others, which no other species can do, is what gives us the power and responsibility to think ahead and evaluate the consequences of our actions. While Pinker does not believe in a spiritual ghost in the machine or soul that drives behavior, he explains that the vast complexity of the brain and the fact that there are at least two kinds of behavior make human choices unpredictable in any simple way from stimuli. Ultimately, neither scholar believes that there is a clear and simple answer to whether or not we truly have free will.
+
+00:05:00
+In this section, the speakers discuss the concept of free will. Robert Sapolsky argues that free will is a myth and that even small decisions are influenced by biological factors. Bill Nye agrees that our ability to choose is often influenced by our environment and biology. Michio Kaku discusses the philosophical debate around free will, including Newtonian determinism and the Heisenberg uncertainty principle. Joscha Bach states that free will, like consciousness, is difficult to define and understand by its content. Overall, the speakers seem to agree that the concept of free will is complex and not fully understood.
+
+00:10:00
+In this section of the debate, the participants discuss the concept of free will, with Robert Sapolsky and Michael Gazzaniga claiming that personal responsibility is the essential part of free will, which can be understood at a social level. Gazzaniga argues that brains are automatic, but people are free because they create social laws, while Sapolsky suggests that decisions can be influenced by discourse, which can shape free will. Additionally, Daniel Dennett introduces the concept of intuition pumps, which are little fables that lead the audience to an intuition or moral, while providing the example of the nefarious neurosurgeon to illustrate his point that neuroscience's claims that we don't have free will may be ill-considered and mischievous.
+
+00:15:00
+In this section, Robert Sapolsky discusses the dangers of telling people they don't have free will. He shares a hypothetical scenario where a neurosurgeon lies to one of her patients, telling him that he doesn't have free will and is under her control. The patient, believing her, becomes self-indulgent and ends up in trouble with the law. Sapolsky argues that, although hypothetical, the scenario demonstrates the harmful effects that can result from telling people they don't have free will. He references an experiment where college students read a text claiming that free will is an illusion, and those who read it were more likely to cheat on a puzzle than the others who didn't. Sapolsky concludes that such claims about free will could make people less concerned about the implications of their actions and become negligent or worse in their decision-making.
+

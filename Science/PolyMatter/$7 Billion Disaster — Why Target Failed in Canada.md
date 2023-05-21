@@ -1,0 +1,19 @@
+# Summary of $7 Billion Disaster — Why Target Failed in Canada
+
+Source: https://youtube.com/watch?v=DSGVlnFtSoo
+
+In this video, the failure of Target to expand into Canada and the subsequent loss of $7 billion is discussed. Target purchased nearly 200 leases from Zellers before opening rapidly, with the clock ticking as every day spent renovating stores was a day it wasn't making money. Target faced issues with inventory due to their decision to use enterprise software SAP which was difficult to implement quickly, leading to widespread inefficiency. Supply chain management was also a disaster, with only 30% of information entered into the system being accurate. Higher prices due to lower population density and subpar store locations also contributed to the failure. In the end, Target left Canada with lackluster sales and a widely-publicized data breach. The video also includes an advertisement for Nebula, a streaming platform for independent creators.
+
+Detail Summary: 
+00:00:00
+In this section, we learn about how Target, a US-based company, tried to expand overseas into Canada, opening over a hundred stores in just two years before ultimately failing spectacularly and becoming a seven billion dollar example of what not to do. The company bought nearly 200 leases from a company called Zellers, which meant that the clock was ticking from the moment the deal was signed, as every day spent cleaning, remodelling, and renovating these stores was a day it wasn’t making money. Despite its pre-existing brand awareness and similar demographics, Target Canada ultimately failed, and the signs in Ontario stores which read “We’re open (mostly)” hinted at the disaster soon to come.
+
+00:05:00
+In this section, we learn that Target opened new stores in Canada at an unprecedented rate during their 10-month-long expansion, but they faced a significant inventory problem. Shelf after shelf was empty, and almost every item in a promotional flier was out of stock at one point. This is because Target made a decision months ago to purchase SAP, a particular type of enterprise software. Nevertheless, the decision turned out to be a terrible idea as Target had to feed the software accurate data for different measurements, currencies, and languages that they couldn't provide in a short time frame. Moreover, SAP's focus on selling consulting services meant it wasn't built for simplicity, and adding the lack of training to that equation resulted in widespread inefficiency in the Canadian stores.
+
+00:10:00
+In this section, it is revealed that Target Canada's supply chain management was a disaster, with only 30% of the information entered into the system being accurate, causing shelves to sit empty while products piled up in distribution centers. The company was forced to rent extra storage space to accommodate the excess inventory, and analysts had even turned off the automatic replenishment system so they wouldn't be penalized for stock shortages. Another issue Target faced was higher prices due to the country's lower population density and subpar store locations. Ultimately, after $7 billion spent, 17,000 hires, and ownership of 133 stores, Target left Canada in 2015 with hardly a trace due to lackluster sales and a widely-publicized data breach.
+
+00:15:00
+In this section, the video creator advertises for Nebula, a streaming platform built for independent creators that offers ad-free content and exclusive access to videos like the creator's "China, Actually" series, as well as Neo's "Under Exposure" and RealLifeLore's "Modern Conflicts." The video creator checks the front page of Nebula daily and praises the frequent release of new, exclusive original content. The platform usually costs $5 a month but can be accessed for just $2.50 a month for those who sign up for a year using the link provided.
+

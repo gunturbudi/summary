@@ -1,0 +1,14 @@
+# Summary of How to Influence Others | Robert Cialdini | Big Think
+
+Robert Cialdini shares the six universal principles of influence and focuses on four of them, including reciprocity, scarcity, commitment and consistency, and consensus or social proof. He emphasizes the difference between influence and manipulation and the importance of discerning between those who are genuinely authoritative and those who are exploiting the process. Cialdini also discusses the qualities that give something mass appeal and suggests that messages like 'don't litter' may reinforce littering as a common behavior. He suggests an alternative approach, such as littering into a pristine environment, to decrease littering.
+
+Detail Summary: 
+00:00:00
+In this section, Robert Cialdini discusses the six universal principles of influence that he discovered through his research and focuses on four of them. These principles include reciprocity, scarcity, commitment and consistency, and consensus or social proof. For example, people are more likely to say yes when they feel obligated to give back to someone who has given something to them, when they are told that something is rare or dwindling in availability, when they are asked to commit to something and then follow through with it, and when they see that others similar to them are also doing it. Cialdini emphasizes that persuasion is not just an art but also a science and hopes that his books will allow the wider public to learn about the research that was done with their tax dollars.
+
+00:05:00
+In this section, Robert Cialdini explains that the principles of influence he discusses are universal and can be applied successfully in all domains, such as with friends, neighbors, coworkers, bosses, and even children. However, he emphasizes the importance of understanding the difference between influence and manipulation, and how these principles can be used for good or ill. He suggests that if one is aware of these principles and the tactics being used, they should not be resistant to influence, but rather should use their knowledge to discern between those who are genuinely authoritative and those who are exploiting the process to manipulate outcomes.
+
+00:10:00
+In this section, Robert Cialdini discusses the key qualities that give something mass appeal, such as the liking principle, where people are more likely to say yes to those they know and like. The authority principle is also influential and those who appear more authoritative, credible, and knowledgeable are more likely to be trusted. Cialdini also explains that public service announcements about littering may be less effective than initially believed, as messages such as 'don't litter' may reinforce the subtext message that everybody is littering. He suggests that to decrease littering, someone should litter into a pristine environment so that others are less likely to adopt that behavior.
+

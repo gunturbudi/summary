@@ -1,0 +1,14 @@
+# Summary of Wendy MacNaughton: The art of paying attention | TED
+
+In this TED talk, artist Wendy MacNaughton emphasizes the importance of drawing as a tool for paying attention and connecting with others. She leads an exercise where participants draw each other's faces without lifting their pencils, promoting intimate eye-to-eye contact and a rare connection in modern society. MacNaughton shares examples of how drawing has helped her uncover unexpected truths about people and places, and describes her experience teaching drawing to kids through an Instagram series called DrawTogether during the pandemic. Drawing helps children and adults slow down, pay attention, and process their emotions, and MacNaughton emphasizes that it is about observing and loving the world around us.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses how as children, we were taught to draw simple, concise icons of things in the world around us without truly looking at them. She then proceeds to lead an exercise that involves drawing each other's faces without ever lifting our pencils or looking down at the paper to encourage the audience to pay closer attention to what they are seeing. The exercise promotes intimate eye-to-eye contact and a connection between the partners that is rare in modern society. Through her work as an illustrator and graphic journalist, the speaker utilizes drawing to connect with others and tell their stories.
+
+00:05:00
+In this section of the video, artist Wendy MacNaughton discusses how drawing allows her to connect with people on a more personal and authentic level than photography. She shares examples of how drawing has helped her uncover unexpected truths about people and places, including a drawn story about how the public library serves elders, and a chance encounter with a bootmaker in Utah. MacNaughton also describes how the pandemic led her to start teaching drawing to kids through an Instagram series called DrawTogether, which provided a much-needed break for parents and a new creative outlet for children stuck at home.
+
+00:10:00
+In this section, Wendy MacNaughton shares her experience leading a drawing class that started with 100 kids and ended up with 12,000. What began as a five-minute drawing exercise for five days became a 30-minute daily drawing class for months, where children learned about perspective, light, shadows, and more. However, the significance of the class extended far beyond art. Drawing helps children and adults slow down and pay attention to the things they often ignore, and studies have shown that it is effective in helping people process their emotions, including trauma. MacNaughton emphasizes that drawing isn't just about putting lines on paper; it is about observing, paying attention, and loving the world around us.
+

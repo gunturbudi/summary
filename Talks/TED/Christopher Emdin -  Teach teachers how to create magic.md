@@ -1,0 +1,11 @@
+# Summary of Christopher Emdin: Teach teachers how to create magic
+
+The success of a teacher goes beyond just content and theory, it involves magic, according to Christopher Emdin in his talk "Teach teachers how to create magic". He argues that teacher education programs should focus more on teaching key skills needed for engaging an audience instead of only teaching theory and standards. Aspiring teachers must immerse themselves in environments where engagement happens, like attending rap concerts, black churches, and hanging out in the hood to take notes on how engaging people there works. By teaching teachers how to create magic, education can be transformed with dead classes coming alive and imaginations reignited.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker highlights the stark contrast between the ineffective methods being taught in teacher education programs and the captivating teaching techniques of "master teachers" who have learned their pedagogical skills by engaging their audiences in unconventional spaces like barber shops, rap concerts, and black churches. He argues that proper preparation in teaching can be so transformative that it can turn bad morals into good and change ordinary men into angels, and that teacher education programs should focus more on teaching these key skills needed for engaging an audience instead of only teaching theory and standards that have nothing to do with sparking the magic needed to truly be an effective teacher.
+
+00:05:00
+In this section, Christopher Emdin talks about how the success of a teacher goes beyond just content and theory, it involves magic. Teachers who can engage an audience are often described as having magic, and this can be taught. To teach this kind of magic, aspiring teachers have to immerse themselves in the environment where it happens by going to the hood, hanging out at barbershops and attending black churches to take notes on how engaging people there works. At the teacher education classes at Emdin's university, every student watches rap concerts to study the rappers' movements, ways of talking and metaphors to learn these little things that become the key to magic. If teacher education shifts focus to teach teachers how to create that magic, dead classes could come alive, imaginations reignited, and education changed.
+

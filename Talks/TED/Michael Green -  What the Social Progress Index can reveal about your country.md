@@ -1,0 +1,14 @@
+# Summary of Michael Green: What the Social Progress Index can reveal about your country
+
+Michael Green discusses the flaws of GDP and introduces the Social Progress Index as a new way of measuring a society's well-being, separate from GDP. The index measures how well societies are meeting basic human needs, providing access to building blocks for improvement, and ensuring that people can pursue their ambitions without barriers. New Zealand ranks the highest on social progress, while the United States, despite its higher GDP, has a lower level of social progress. Green believes that new tools and ways of measuring progress, such as valuing nonprofits' contributions and holding politicians accountable, are necessary for the century of social progress.
+
+Detail Summary: 
+00:00:00
+In this section of the video, Michael Green talks about the history of GDP and why it's a flawed measure of economic success. He explains how GDP became a benchmark of success and why it's inadequate in measuring the real things that matter to people, such as fairness, justice, and the environment. He believes that we are ready for a measurement revolution to move beyond GDP and find a better way to measure our societies based on what really matters to people.
+
+00:05:00
+In this section, Michael Green introduces the Social Progress Index, a new way of measuring the well-being of a society, separate from GDP. The index measures how well societies are meeting basic human needs, providing access to building blocks for improvement, and ensuring that people can pursue their ambitions without barriers such as discrimination. Each of these 12 components has indicators to measure countries' achievement. New Zealand ranks highest on social progress, followed by Canada and then the Scandinavian countries. The United States is considerably richer than New Zealand but has a lower level of social progress.
+
+00:10:00
+In this section, Michael Green explains that GDP is not always an accurate indicator of a country's development and social progress. Poorer countries can see significant social progress as they increase their GDP, but the curve flattens out for wealthier countries. Brazil is used as an example of a country that is doing a decent job of turning GDP into social progress, but that needs to prioritize social progress in its development plan to become more efficient at creating social progress from its GDP. Green also discusses the launch of the first subnational Social Progress Index for the Amazon region, which can be used by government, business, and civil society organizations to work together to construct a development plan that improves people's lives while protecting the Amazon Rainforest. He concludes by emphasizing the need for new tools and ways of measuring progress, such as valuing the contributions of nonprofits and holding politicians accountable for improving people's lives, to make this century the century of social progress.
+

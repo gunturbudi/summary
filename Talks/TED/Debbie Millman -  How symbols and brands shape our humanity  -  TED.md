@@ -1,0 +1,14 @@
+# Summary of Debbie Millman: How symbols and brands shape our humanity | TED
+
+In her TED talk, Debbie Millman discusses the evolution of symbols and branding in human history, from their use in identifying affiliations and beliefs to their modern-day use in marketing and creating personal brands. Millman explores the power of symbols to unite and divide people and examines the swastika as an example of a symbol with a shared identity that was later appropriated for nefarious purposes. She also discusses how branding has evolved with the advent of social media, allowing people to create their own brands around shared ideals. Ultimately, Millman believes that branding is a manifestation of the human spirit and that it is our responsibility to design a culture that reflects our desired world.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the evolution of humans from the big bang to modern-day, as well as the development of organized religion and symbology. The Great Leap Forward, a genetic mutation, resulted in modern abilities such as planning, abstract thought, and self-decoration, which eventually led to the creation of telegraphic symbols that represented beliefs and identification with affiliations. These symbols allowed like-minded people to connect and feel safer, and were often rituals and practices that had commonalities across cultures. However, disagreements on beliefs and behaviors regarding others led to early religious wars with flags used to indicate sides.
+
+00:05:00
+In this section, Debbie Millman discusses the evolution of branding, from the use of symbols on flags to differentiate friend from foe to logos on products that identify the maker. She explores the power of branding and symbols, asking whether the success of the Nike swoosh is due to the design of the mark or the marketing. Millman also examines the swastika, a symbol with a shared identity that originally meant “good fortune” but was eventually appropriated by the Nazis. While Millman acknowledges both the benefits and downsides to branding, she argues that it is more important to understand why we engage in this behavior.
+
+00:10:00
+In this section, Debbie Millman discusses how the concept of branding has evolved over the past decade, and how it is now something that is no longer wholly controlled by corporations. Instead, social media and online platforms allow people to create their own brands to unite people around shared ideals, for the positive benefit of humanity. She cites the example of the pink pussyhat, a symbol created by people to support the Women's March, as proof that branding is no longer just a tool of capitalism, but a way to connect people around causes and beliefs. Ultimately, Millman believes that branding is a profound manifestation of the human spirit, and it is our responsibility to design a culture that reflects and honors the kind of world we want to live in.
+

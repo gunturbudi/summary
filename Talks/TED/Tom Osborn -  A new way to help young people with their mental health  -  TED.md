@@ -1,0 +1,11 @@
+# Summary of Tom Osborn: A new way to help young people with their mental health | TED
+
+Tom Osborn discusses the lack of mental health resources in low-resource countries, specifically Kenya, and how it impacts the success and independence of young people. To address this issue, Osborn trains 18-22 year olds to offer evidence-based care to their peers through a structured and tiered model, reducing stigma and focusing on building character strengths and improving well-being. Results have shown reduced symptoms of depression and anxiety, improved social relationships and a greater sense of ability to change the world. Osborn highlights that mental health is a global issue requiring big ideas to tackle it and that the community-focused model his team developed in Kenya could serve as a template for the rest of the world.
+
+Detail Summary: 
+00:00:00
+In this section, Tom Osborn discusses how mental health problems in low-resource countries, particularly in his home country, Kenya, prevent young people from leading successful and independent lives. Despite only having two clinicians for every one million Kenyans and a lack of child and adolescent psychiatrists, Osborn is helping tackle youth mental health by training 18- to 22-year-olds as lay providers to offer evidence-based care to their peers through a structured and tiered model, ensuring that all young people have access to mental health care. The stigma surrounding mental health in Kenya is also being addressed through this method focusing on building character strengths, strengthening individual autonomy, and improving overall human function and well-being. As a result, young people are seeing reductions in depression and anxiety symptoms, improvements in social relationships, and a greater sense of their ability to change the world.
+
+00:05:00
+In this section, Tom Osborn emphasizes that the issue of mental health is a global problem that requires big ideas to tackle it. He also states that the community-focused model they developed in Kenya could serve as a template for the rest of the world. Osborn then shares a story his grandmother told him, comparing it to the current mental health crisis, and encouraging people to come together to build a better future where young people can flourish and thrive.
+

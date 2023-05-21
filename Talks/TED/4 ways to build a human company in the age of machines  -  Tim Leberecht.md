@@ -1,0 +1,14 @@
+# Summary of 4 ways to build a human company in the age of machines | Tim Leberecht
+
+In the video, Tim Leberecht presents four subjective principles for building a beautiful organization in an age of machines where human beings are being replaced. He highlights the importance of creating intimacy within the organization to promote relationships and small moments of attachment to foster creativity and productivity. Leberecht proposes that companies should embrace authenticity by acknowledging the ugly truth in their business and incentivizing employees to come forward and address the problems they discover. He emphasizes that promoting inclusivity and keeping the organization incomplete are essential to encourage a sense of belonging and discourage treating employees as cogs in a machine. Overall, by embracing human characteristics, such as imperfection, incompleteness, and intimacy, companies can create a feeling of home, promoting a new radical humanism to counter the rise of smart machines.
+
+Detail Summary: 
+00:00:00
+In this section, Tim Leberecht provides four subjective principles for building a beautiful organization in an age of machines where machines are replacing the human workforce. First, do the unnecessary, actions that are not necessary, and create something out of nothing. Second, create intimacy in the workplace, which depends a lot on the relationships we have with our coworkers, and the small moments of attachment between these relationships. Organizations should encourage staff to openly discuss their personal relationships to strengthen the bond among themselves, creating lasting intimacy.
+
+00:05:00
+In this section, Tim Leberecht discusses the importance of creating intimacy within an organization to foster creativity and productivity. He uses the example of a company, Danone, that asked employees to wear costumes during a three-day strategy retreat. The use of wigs and costumes eradicated hierarchy, allowing for more authenticity and intimacy. Leberecht suggests that authenticity is key and that organizations should be willing to embrace the ugly truth to transform business units, for example, by creating an “ugly room” where problems are identified and celebrated. Demonstrating inclusivity and keeping the organization incomplete is also essential to encourage a sense of community and avoid treating employees as cogs in a machine.
+
+00:10:00
+In this section, Tim Leberecht discusses the concept of human companies and how they can remain beautiful and mysterious like great cities. He argues that by embracing human characteristics such as imperfection, incompleteness, and intimacy, organizations can create a feeling of home for both themselves and others. Leberecht suggests that beauty can save the world by designing for these principles and promoting a new radical humanism to counter the rise of smart machines that do not appreciate humanity.
+

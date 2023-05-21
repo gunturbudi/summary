@@ -1,0 +1,14 @@
+# Summary of Candis Watts Smith: 3 myths about racism that keep the US from progress | TED
+
+In this TED Talk, Candis Watts Smith challenges three myths about racism in the US. She points out that racism is not just a problem in the South, and it exists at the state and local level in every state, that Americans are not good at hunting for racists, and people with good intentions can still contribute to racial inequality through their actions and biases. She emphasizes the need for a shared understanding of racism and for holding legislators accountable for creating more equitable outcomes. Additionally, she suggests having hard conversations with children to prevent them from making the same mistakes as past generations and reminds the audience that they are responsible for creating racial disparities and capable of undoing them.
+
+Detail Summary: 
+00:00:00
+In this section of the transcript, Candis Watts Smith dispels three myths about racism that keep the US from making progress. The first myth is that racism only exists in the South, when in reality, racism exists in every state and is often at the state and local level. The second myth is that Americans are good at hunting for racists, but this is not the case as many instances of racism are often ignored. The third myth is that only individuals with bad intentions perpetuate racism, when in reality, people with good intentions can still contribute to racial inequality through their actions and biases. To make progress, there needs to be a shared understanding of what racism is followed by holding city, county, and state legislators accountable for creating more equitable outcomes.
+
+00:05:00
+In this section, the speaker points out that while people are quick to condemn blatantly racist behavior, fewer people scrutinize current-day policy stances of legislators who have the potential to enact racist policies. She questions whether people would support a candidate willing to let neighborhoods secede from their district or a ballot measure that systematically reduces some groups' chances of voting. The speaker also challenges the myth that younger generations will solve the problem of racism, citing research that shows young white Americans are sometimes more racially conservative than their boomer counterparts. She suggests that we must have hard conversations with our children about racism to prevent them from making the same mistakes as past generations and work towards a shared definition of racism as anti-racists who learn more and do better.
+
+00:10:00
+In this section, the speaker emphasizes that people are responsible for creating racial disparities and therefore, they are capable of undoing them. She acknowledges that it won't be easy, but urges the audience to remember that their inaction will harm someone who is depending on them.
+

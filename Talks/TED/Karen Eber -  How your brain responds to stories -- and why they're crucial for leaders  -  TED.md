@@ -1,0 +1,14 @@
+# Summary of Karen Eber: How your brain responds to stories -- and why they're crucial for leaders | TED
+
+In her TED talk, Karen Eber highlights how storytelling affects the brain and can be a powerful tool for leaders to connect with their audience. Listening to stories activates the entire brain and releases oxytocin, the feel-good chemical, making the storyteller more trustworthy. Eber emphasizes that to influence behavior, we must appeal to emotions through storytelling, which builds tension and leaves the audience with a takeaway message. She recommends using a framework to guide both data and story, cautioning against using too much data without a clear context, conflict, and outcome. Eber shares the story of Michelle, a student with autism, to demonstrate the importance of using a relatable story to communicate information effectively.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the neurological effects of listening to stories versus data. While listening to data only activates two parts of your brain responsible for processing information, listening to a story will activate your entire brain, causing your lobes to light up as if you're experiencing what's being described. This neural coupling releases oxytocin, the feel-good chemical, and increases empathy for the storyteller, making them more trustworthy. The speaker emphasizes the importance of storytelling for leaders and encourages them to use stories as a powerful tool for connecting with their listeners.
+
+00:05:00
+In this section, Karen Eber discusses how our emotions play a significant role in decision-making, and how storytelling can be used to influence behavior. Eber explains that data alone cannot change behavior because our amygdala, the emotional epicenter of our brain, controls decision-making at the subconscious level. To change behavior, we must appeal to emotions through storytelling, which builds tension, communicates value, and leaves the audience with a takeaway message. Eber recommends starting with a framework to guide both the data and the story and cautions against using too much data without a clear context, conflict, and outcome.
+
+00:10:00
+In this section, Karen Eber shares the story of Michelle, a straight-A student with autism who was struggling to navigate university until her adviser allowed her to communicate through writing. Eber emphasizes that while data is important, storytelling is equally crucial in communicating information effectively. By using a powerful and relatable story, Briana was able to help university officials connect with the data and see the importance of providing better support for students with autism. Eber concludes by encouraging leaders to incorporate storytelling into their communication and to not wait for the perfect story, but to take their own stories and make them perfect.
+

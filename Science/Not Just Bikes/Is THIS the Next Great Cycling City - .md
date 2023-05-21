@@ -1,0 +1,22 @@
+# Summary of Is THIS the Next Great Cycling City?
+
+Source: https://youtube.com/watch?v=zmp09Fd07oc
+
+The video explores Oslo's potential to become a great cycling city by discussing the city's commitment to reducing car traffic, improving public transportation, and designing bike-friendly streets. While some areas have well-designed cycling infrastructure, there are still areas lacking proper signage and protection. The video also acknowledges the challenges in transitioning away from car-centric cities and highlights the importance of clear and safe bike infrastructure. Additionally, the video emphasizes the significance of good road design guidelines and concludes by encouraging viewers to support the channel.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses how Oslo is rapidly transforming into an example of good urbanism on the planet by making the city more livable, efficient, and safe for everyone. The Oslo City Council committed to reducing the amount of car traffic in the city, prioritizing safety for people walking and cycling, improving public transport, and reducing car parking. However, only about six or seven percent of trips in Oslo are currently taken by bicycle compared to 36 percent of trips in Amsterdam. To increase that number significantly, the city commissioned its own National Road design guidelines, which sets out all of the road design principles and priorities for the city. Nonetheless, some cycling infrastructure still requires improvements, and the raised cycling path is not continued through intersections, which makes it less safe.
+
+00:05:00
+In this section, the video explores the cycling infrastructure in Oslo, Norway. While some streets have good cycling infrastructure, such as protected bike lanes and well-designed intersections, others have a serious lack of bicycle parking, and unprotected crossings, making cycling uncomfortable or unsuitable for many people. The video notes that, in general, protected bicycle lanes are only necessary because of the volume of cars; if car volumes were reduced, people cycling wouldn't need bike lanes. Finally, the video describes the Tour de Finance, a well-used two-way cycling path running parallel to the Lakeshore for about six kilometers, which unfortunately runs right along the E18 Motorway, making the sound of high-speed motor traffic pretty loud.
+
+00:10:00
+In this section, the video highlights the importance of clear and safe bicycle infrastructure, as demonstrated on a path that is widely used by commuters in Oslo. Despite being mostly well-designed and used frequently by cyclists, there is a section that lacks proper signage and ends abruptly, which can be dangerous for riders and deter casual cyclists from using the path. The video also showcases the car-free shopping district of Aker Brygge, encouraging sustainable modes of transportation such as cycling. The video concludes by acknowledging some of the complex infrastructure challenges posed by a transition away from car-centric cities, but also the benefits that such change brings.
+
+00:15:00
+In this section, the video's creator visits various locations in Oslo to check out the city's bicycle infrastructure. While Oslo's public transportation is reliable and convenient, the cycling infrastructure is still developing, making it a challenge for the city to become a cycling City. Despite this, the city has built a well-designed bridge to connect two neighborhoods separated by a highway, making it easy for cyclists to access it. Furthermore, the infrastructure for walking is good, which is not surprising as the majority of people in the city prefer to walk or take public transportation. However, the bicycle infrastructure becomes less prevalent outside the city center and almost disappears in the suburbs, making it challenging for cyclists to travel. The city has the potential to have safer and more comfortable streets, but resurfacing or rebuilding is required.
+
+00:20:00
+In this section, the speaker talks about how implementing good quality road design guidelines is crucial for improving cycling infrastructure in cities. Additionally, the speaker shares his travel experiences and how he uses a VPN, specifically nordvpn, to bypass website restrictions and keep his traffic secure, which is especially important when using public Wi-Fi networks. The speaker also thanks his supporters on Nebula and Patreon and encourages viewers to consider supporting his channel.
+

@@ -1,0 +1,17 @@
+# Summary of The most important thing you can do to fight climate change: talk about it | Katharine Hayhoe
+
+Atmospheric science professor Katharine Hayhoe believes that the most important thing individuals can do to fight climate change is to talk about it. She argues that political beliefs are the primary factor behind whether people believe in climate change, and that dialogue is key to connecting with others and promoting change. Hayhoe advocates connecting with others through shared values, such as care for the least fortunate, instead of relying solely on scientific data and facts. She also emphasizes the importance of highlighting practical, viable, and attractive solutions, rather than only focusing on scary facts. Despite progress made by countries like China and India, Hayhoe believes that more needs to be done as climate change affects everyone on the planet, and talking about the issue is critical to finding solutions.
+
+Detail Summary: 
+00:00:00
+In this section, Katharine Hayhoe, an atmospheric science professor, talks about the sad fact of life regarding climate change in the United States and Canada. She notes that the political spectrum is the number one predictor of whether people believe climate change is real and humans are responsible for it. Many use sciencey-sounding smoke screens to hide the real reason for their objections, which have everything to do with ideology and identity and not science. The number one thing we can do is talk about climate change. We don't need to be experts in climate science, as the science has been talked about for over 150 years.
+
+00:05:00
+In this section, Katharine Hayhoe stresses the importance of starting the conversation about climate change by connecting with people's values, rather than solely focusing on scientific data and facts. By starting from the heart and finding common values, such as parenting and care for the least fortunate, Hayhoe believes that we can help people see the importance of a changing climate. She emphasizes that just about everyone in the world already has the values they need to care about climate change and that they just need to connect the dots. Through dialogue and genuine connections with people, we can help others see the effects of climate change in their lives.
+
+00:10:00
+In this section, Katharine Hayhoe explains that scary facts are not enough to motivate people for the long-term changes required to address climate change. Instead, we need rational hope, a vision of a better future. The solution is to talk about practical, viable and attractive solutions such as eating local, reducing food waste, and using lifestyles that save money and reduce carbon footprint. Katharine also talks about solutions that have been implemented such as clean energy jobs in Texas, pay-as-you-go solar in sub-Saharan Africa, and solar-powered cell phone charging units across 11 countries in  China and India.
+
+00:15:00
+In this section, the speaker talks about the efforts being made by China and India towards clean energy and reducing carbon emissions. China has invested heavily in clean energy to power their future while India plans to replace a quarter of a billion incandescent bulbs with LEDs thus saving seven billion dollars in energy costs. Despite the progress, the world is not changing fast enough as climate change affects every person on the planet and requires billions of people to act. The speaker suggests that talking about climate change is the number one way to speed up the process of finding solutions.
+

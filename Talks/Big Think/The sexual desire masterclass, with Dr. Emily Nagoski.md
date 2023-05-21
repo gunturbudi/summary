@@ -1,0 +1,13 @@
+# Summary of The sexual desire masterclass, with Dr. Emily Nagoski
+
+Source: https://youtube.com/watch?v=eqX38J9ya1I
+
+Dr. Emily Nagoski explains the concept of sexual desire as both 'spontaneous' and 'responsive,' and discusses the history of the science of sex therapy, highlighting the addition of desire in the Triphasic Model and the Dual Control Model's emphasis on understanding the accelerator and brake systems in the brain. She also emphasizes the importance of context in which sexual desire is experienced, which includes external circumstances and internal states. Nagoski advises people to co-create a context with their partner that allows access to pleasure and to talk about sex to deepen the erotic connection in the relationship. She reminds people to prioritize pleasure as the measure of sexual well-being, and other aspects like desire and orgasm will fall into place.
+
+Detail Summary: 
+00:00:00
+In this section, Dr. Emily Nagoski discusses the concept of sexual desire and the different ways in which it can be experienced. She asserts that most people think of sexual desire as 'spontaneous,' emerging in response to a random sexual thought, whereas it can also be 'responsive,' emerging as a result of pleasure. Nagoski then delves into the history of the science of sex therapy, highlighting the Three-Phase Model of Sexual Response developed by Masters and Johnson that did not consider desire in its equation. She explains how this led to Kaplan introducing the Triphasic Model, which added the element of desire, and later the Dual Control Model developed by Janssen and Bancroft that emphasizes the importance of understanding the functioning of the accelerator and brake systems in the brain to enhance sexual pleasure.
+
+00:05:00
+In this section, Dr. Emily Nagoski discusses how sexual desire depends on the context in which it is experienced, which includes external circumstances and internal states such as stress, depression, anxiety, or repressed rage. She mentions that couples who can sustain a strong sexual connection are the ones who know how to co-create a context that allows both of their brains to have access to pleasure. Nagoski says that talking about sex with a partner can be difficult, but it's essential to deepen the erotic connection in a relationship. She advises people to bring a positive frame and use a shared vocabulary to understand how to stoke the fire for the times when they are ready. Finally, Nagoski emphasizes that pleasure is the measure of sexual well-being and when people put pleasure at the center of their definition of sexual well-being, aspects like desire and orgasm will fall into place.
+

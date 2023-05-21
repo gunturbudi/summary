@@ -1,0 +1,17 @@
+# Summary of Moral behavior in animals | Frans de Waal
+
+Frans de Waal discusses his findings on the morality of animals including empathy, reciprocity, and "synchronization" by way of examples from experiments involving elephants, capuchin monkeys, and chimpanzees. He goes on to argue that humanity is more empathetic and cooperative than commonly thought, and that excluding animal behavior from discussions of morality is unfair. Finally, he shares a story about the incredulity his findings elicited from some academics, their surprise highlighted the need to expand current moral frameworks and recognize the role of empathy, reciprocity, and other social traits in animal morality.
+
+Detail Summary: 
+00:00:00
+In this section, Frans de Waal talks about his discovery of morality in animals. Previously focused on animal aggression and competition, he changed his views after observing chimpanzees reconciling after a fight, and later seeing bonobos using sex to reconcile. De Waal identifies reciprocity and empathy as the two factors that serve as the pillars of morality, and gives examples such as chimpanzees cooperating to pull a heavy box, as well as showing concern for one another's well-being. He argues that humanity is actually more cooperative and empathic than given credit for, and that the idea of man as a wolf to man is unfair to both humanity and wolves.
+
+00:05:00
+In this section, Frans de Waal discusses experiments conducted on chimpanzees and elephants to study their ability to cooperate and exhibit reciprocity. The animals showed an understanding of cooperation and a willingness to work together for mutual benefit, even freeloading, as demonstrated by the elephants. Frans also talks about empathy in animals, which has two qualities: understanding and emotional. He presents the concept of synchronization, where animals adopt the body language of the other, as a form of empathy. The ability to take the perspective of others remains limited to very few animals like elephants and apes.
+
+00:10:00
+In this section, Frans de Waal discusses the concept of empathy and moral behavior in animals. He shares the results of multiple experiments, including one on chimpanzees that shows they care about the welfare of their peers and another on capuchin monkeys that shows their reaction to inequity. The monkeys are willing to do a task repeatedly if given cucumber but get upset when they see their partner getting grapes, which they think is a better food. They react by throwing a tantrum and testing whether their rock will be enough to get them the better food, showing a sense of fairness that was previously thought to be unique to humans.
+
+00:15:00
+In this section, Frans de Waal shares a funny story of the reactions a study on the sense of fairness in monkeys received from some anthropologists, economists, and philosophers. They had decided that animals cannot have a sense of fairness because they had determined it to be a very complex issue. It was said that fairness was even impossible for monkeys to understand because it was invented during the French Revolution. However, de Waal's team found a combination of chimpanzees where the one who received the grape would refuse the grape until the other chimpanzee also received one, thus proving that chimpanzees display a sense of fairness. He concludes by stating that empathy, consolation, pro-social tendencies, reciprocity, and a sense of fairness are the ingredients that make up an evolved morality, and they are found in primates as well.
+

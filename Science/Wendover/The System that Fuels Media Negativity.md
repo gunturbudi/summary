@@ -1,0 +1,19 @@
+# Summary of The System that Fuels Media Negativity
+
+Source: https://youtube.com/watch?v=89FoKRtpAy4
+
+The video explains how the media's negativity bias, which is an inherent human response to negative information, can influence the types of stories that are pitched, published and rewarded. This leads to a vicious cycle of negative news that may distort reality, while positive news often gets left behind. The video suggests that a change in the funding model of media, as evidenced by public broadcasters in Australia and the UK, can incentivize quality of information over quantity of viewers. The video also highlights the trend towards the nationalization of the internet and recommends using NordVPN to make the internet experience as free, open and safe as possible.
+
+Detail Summary: 
+00:00:00
+In this section, the video explains the concept of the negativity bias, which states that humans respond more strongly to negative stimuli than positive ones. While it is difficult to determine whether this is natural or cultural, examples from evolution suggest that it may be ingrained in humans' DNA. For example, during human pregnancy, the evolutionary influence of parental death differs depending on whether it occurs to the father or mother, and studies have shown that male humans exhibit a weaker negativity bias due to the evolutionary pressure to find food, whereas the mother must first and foremost focus on her and her child's survival.
+
+00:05:00
+In this section, the video explores the evolutionary roots of the media's negativity bias, which is a natural response to respond more strongly to negative information than positive information. This bias starts with journalists who are subject to the same negativity bias, leading them to pitch negative stories to their editors. This negative slant goes up the line, influencing the editor and news institution that then publishes the story, and is rewarded by the public who consumes it. The video also presents a study that shows that the US media's coverage of COVID-19 leaned negative at a whopping 87%, which is much higher than the rest of the world. This negativity bias fuels a vicious cycle that leads to more negative news.
+
+00:10:00
+In this section, the video highlights how the media's negativity bias can lead to negative news winning in a hypothetical situation where there is only time for one news story to be aired, even if the other story may be more important. The media's focus on negative news can also create a distorted mirror of society, leading people to believe problems are worse than they actually are, leading potentially to irrational decision-making. However, there are interventions that can be made, such as changing the funding model of the media, to incentivize quality of information over quantity of viewers. For example, public broadcasters in Australia and the UK, who receive funding from the government, are less negative and more focused on providing a worthwhile service to the public.
+
+00:15:00
+In this section, the video discusses the challenge of achieving true media autonomy under a public funding model and true balance under an ad-supported model, leading to a bias in media negativity. The video also highlights the trend towards nationalization of the internet, resulting in censorship firewalls, legislation limitations, and different versions of websites across countries. The video then introduces NordVPN, a tool to make internet experience as free and open as possible by routing traffic through servers in different countries, ensuring privacy, safety, and threat protection. The video recommends NordVPN, especially considering the deal they offer, including a risk-free 30-day money-back guarantee and four free bonus months with any two-year plan purchased through the link provided.
+

@@ -1,0 +1,17 @@
+# Summary of Erin McKean: The joy of lexicography
+
+Erin McKean, a lexicographer, discusses the limitations of traditional dictionaries, which fail to capture the vastness of the English language. She argues that being less concerned with control and more concerned with description is the path forward, and engaging more people can unlock new ways of thinking about vocabulary. McKean suggests that the dictionary needs to evolve, and with all words included and aesthetic judgments avoided, it can better serve the needs of its users. To achieve this goal, McKean emphasizes the need for people to take an active role in expanding the English language and for word-collecting sites to provide scientific methodology in giving words greater meaning.
+
+Detail Summary: 
+00:00:00
+In this section, lexicographer Erin McKean explains that dictionaries are not carved out of granite, but rather made up of little, discrete words. While it's a fun occupation, people often think her job is to direct traffic and make decisions on what words are good or bad. In this sense, she compares herself to a fisherman throwing a net into the deep, blue ocean of English to see what she can catch. Despite technological advances and online dictionaries, she argues that the design of dictionaries has remained unchanged and fails to provide the serendipity of print.
+
+00:05:00
+In this section, lexicographer Erin McKean uses the analogy of the ham butt problem to explain the issue of considering some words as "bad" or outside the norm. She believes that the concept of an artificial constraint can lead to arbitrary distinctions and a skewed worldview. McKean argues that love makes words real and emphasises the need for more people to take an active role in expanding the English language by looking past the limitations of paper and traditional dictionaries. She suggests that being less concerned with control and more concerned with description is the path forward, and that engaging more people can unlock new ways of thinking about vocabulary.
+
+00:10:00
+In this section, Erin McKean speaks about the vast amount of words that exist outside of commonly used language dictionaries. The Oxford English Dictionary (OED), for example, contains only a fraction of the English-language lexicon, with only one or two examples of each word used, while "undictionaried" words which haven't yet made it into institutions, appear frequently in everything from books and newspapers to websites and blogs. This is where word-collecting sites come in, but currently, many of these are lacking in scientific methodology, failing to provide the necessary provenance, source, and context needed to give the word a greater meaning. If we were to expand the dictionary to include all of these "undictionaried" words, we could then finally begin to grasp the true vastness of the English language.
+
+00:15:00
+In this section, Erin McKean shares her vision of the future of dictionaries, where the dictionary is not just a symbol but the whole language. She hopes that her seven-year-old son will grow up to remember traditional dictionaries as outdated as eight-track tapes, and that the dictionary can evolve into a scientific tool that describes the language without making aesthetic judgments. By removing the artificial distinction between good and bad and putting in all the words, McKean believes that the dictionary can better serve the needs of its users and free up the time of lexicographers like herself.
+

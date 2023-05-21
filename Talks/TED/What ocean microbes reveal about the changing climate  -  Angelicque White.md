@@ -1,0 +1,14 @@
+# Summary of What ocean microbes reveal about the changing climate | Angelicque White
+
+Biological oceanographer, Angelicque White, discusses the impact of climate change on the Pacific Ocean in this video. Changes in temperature and circulation have led to harmful algal blooms, decreased salmon recruitment, and invasive species, affecting fisheries and marine mammal health. She highlights the importance of sustained observation of our oceans and planet to enact global change and protect our environment. White emphasizes nurturing the microbes that make up the ocean ecosystem, as they are vital to the food web and can help marine ecosystems recover from damage caused by human activity.
+
+Detail Summary: 
+00:00:00
+In this section, Angelicque White, a biological oceanographer, talks about studying microbial life in the Pacific Ocean, which is our largest and deepest ocean basin. She mentions that microbial ecosystems in the ocean are changing in real and measurable ways, and shares two vignettes to show the importance of microbes. The first vignette is about the forests of the sea, which are microbial by and large, and they form the base of the food web on which every other form of ocean life is reliant. The second vignette concerns harmful algal blooms, which are tightly linked to the long-term changes in climate.
+
+00:05:00
+In this section of the video, Angelicque White discusses the ecological and economic impacts of climate change on the Pacific Ocean. Changes in circulation and temperature have increased harmful algal blooms, decreased salmon recruitment, and introduced invasive species like green crab. These impacts can affect economically important fisheries and marine mammal health. The frequency and severity of these climate events are expected to get worse, leading to further damage to marine ecosystems, but White notes that these ecosystems are resilient and can bounce back if given a chance. She then discusses the Hawaiian Ocean Time-series, a program that has studied the biology, chemistry, and physics of the open ocean for 31 years, and has allowed researchers to measure the effects of greenhouse gas emissions on the ocean by tracking carbon dioxide and pH levels.
+
+00:10:00
+In this section, Dr. Angelicque White talks about how human activity is impacting the top 500 meters of the ocean and the many issues that threaten the ocean's health, including harmful algal blooms, ocean acidification, sea-level rise, eutrophication, melting of the polar ice caps, expansion of oxygen minimum zones, pollution, loss of biodiversity, and overfishing. Despite the challenges, Dr. White believes that sustained observation of our oceans and planet is essential to adapt and enact global change. The solutions involve a portfolio of solutions, local change, and voting for people who will protect our environment on a global scale, emphasizing the importance of nurturing the microbes that make up the ocean ecosystem.
+

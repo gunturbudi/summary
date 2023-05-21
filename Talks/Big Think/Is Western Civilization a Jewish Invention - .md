@@ -1,0 +1,11 @@
+# Summary of Is Western Civilization a Jewish Invention?
+
+The role of Judaism in the development of Western civilization is explained in this video. It is said that Judaism's ethical influence introduced the concept of mankind as an entity and created a universal moral code, while its aesthetic influence has had a lasting impact on Western literature and art. The concept of Hebraic Christianity in Britain during the Elizabethan and Civil War eras is also discussed, which influenced American history through the story of the Exodus and the ideas of freedom and liberty. The speaker notes that Western culture has been more inclined to look at ancient Greece than ancient Israel, but these ideas were present in the philosophy of the English Enlightenment and provided the intellectual counterweight to the pragmatic liberalism of the founding fathers.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker explains that Judaism has played an important role in the development of Western civilization due to both ethical and aesthetic influences. On the ethical side, Judaism introduced the concept of mankind as an entity and created a universal moral code applicable to everyone. In terms of aesthetics, Judaism's obsession with imagery has had a lasting impact on Western literature and art, with biblical images recurring throughout Western works. The speaker emphasizes that Judaism has had a commanding role in the creation and development of Western culture and civilization.
+
+00:05:00
+In this section, the speaker discusses the concept of Hebraic Christianity that was present in Britain during the Elizabethan and Civil War eras. While not identifying as Jewish themselves, the people of this time period were greatly influenced by Hebrew scripture and repeatedly referred to themselves as the new Israel. This idea of freedom and liberty was derived from the story of the Exodus and was fundamental in American history, culminating in the civil rights movement of the 60s and late 50s. The speaker notes that while Western culture has been more apt to look at ancient Greece than ancient Israel, these ideas were present in the philosophy of the English Enlightenment and provided the intellectual counterweight to the active and pragmatic liberalism of the founding fathers.
+

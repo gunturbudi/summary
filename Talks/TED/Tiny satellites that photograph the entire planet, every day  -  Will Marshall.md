@@ -1,0 +1,11 @@
+# Summary of Tiny satellites that photograph the entire planet, every day | Will Marshall
+
+Will Marshall, in his YouTube video, explains how his company Planet Labs created highly capable, ultra-compact "Dove" satellites that can capture images of the entire planet every day. Using "release early, release often" software and agile aerospace manufacturing techniques, they launched the largest Earth-imaging satellite constellation in history. These satellites will help track urban development, water security, crop growth, and more. With a vast amount of collected data, Marshall emphasizes democratizing access for NGOs, companies, scientists, journalists, and developers to help solve planet-related problems. He invites viewers to come and explore the possibilities with them.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker introduces the limitations of current satellite imagery of Earth and the need for regularly updated data. However, the current satellite models are expensive, heavy, and slower to expand. Therefore, the speaker and his team at Planet Labs decided to create highly capable, ultra-compact and small satellites that are 10x the resolution of the current models, and can take images of the whole planet every day. These satellites are named "Dove," and the team has rapidly prototyped and launched several satellites by using "release early, release often" software and agile aerospace manufacturing techniques to democratize access to satellite information. They recently launched the largest constellation of Earth-imaging satellites in human history, providing a completely radical new data set to understand our changing planet.
+
+00:05:00
+In this section, Will Marshall explains how a large constellation of tiny satellites will be able to take a photo of every single point on the planet every day. He shares the first images taken by the recently launched satellites, showcasing how they can help track urban development, water security, crop growth, and more. With the huge amount of data that will be collected, Marshall emphasizes the importance of democratizing access to it for NGOs, companies, scientists, journalists, and developers to help solve various planet-related problems. He invites viewers to come and explore the possibilities with them.
+

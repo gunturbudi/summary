@@ -1,0 +1,17 @@
+# Summary of Yuko Munakata: The science behind how parents affect child development | TED
+
+Yuko Munakata, in her TED talk, explains that while growing up in the same home does not make children more alike in things such as success or happiness, genes can influence children's development. There are diverse forces that interconnect to shape a child's development, making it challenging to measure the extent to which parents impact their children's lives. Nevertheless, parents should understand that they matter and their influence on their children's lives is significant. Munakata urges parents to appreciate the power of moments in their children's growth and to embrace the complexity of child development, which can empower parents to make daily decisions that are more significant and satisfying.
+
+Detail Summary: 
+00:00:00
+In this section, Yuko Munakata discusses how parenting books often send conflicting messages and can make parents feel guilty for their children's shortcomings. The science of child development, however, reveals that parents do not have control over shaping who their children become. Munakata compares parenting to a butterfly flapping its wings and shaping a hurricane in complex and unpredictable ways. While successful parents and successful genes may play a role in shaping children, there are many intertwined forces that influence a child's development, making it difficult to know the extent to which parents impact their children's lives.
+
+00:05:00
+In this section, the speaker discusses how millions of children have been studied in order to understand how parents shape who their children become. Through these studies, it has been found that growing up in the same home does not make children noticeably more alike in things such as success or happiness. While genes influence who children become, the environment also matters. However, something in the environment does not shape children growing up in the same home to be more alike. The speaker also discusses how the same parent can shape different children in different ways, as each child may experience the same event in a different way.
+
+00:10:00
+In this section, the speaker notes that just because an event doesn't shape people in the same way, that doesn't mean it had no effect. Parenting, for instance, could be shaping children differently, leading to different outcomes even for children under the same roof. She notes that scientists have a sophisticated understanding of how parents shape their children's futures, though how parents matter is complex and difficult to predict. Nevertheless, parents should know that they matter, and that their influence on their children is essential, but they shouldn't blame themselves for whatever paths their children take, as they exert only influence and not control.
+
+00:15:00
+In this section, Yuko Munakata talks about how becoming a parent helped her view child development science in a new light. She urges parents to appreciate the power of moments in their child's current growth and to be realistic about the level of control they have over their child's future. Embracing the complexity of child development can empower parents to make daily decisions that are more meaningful and satisfying. Munakata believes that understanding the science behind parents and children can make parenting a more joyful experience for everyone involved, and allow us to focus on what is most important in life.
+

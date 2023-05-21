@@ -1,0 +1,14 @@
+# Summary of Loretta J. Ross: Don't call people out -- call them in | TED
+
+Loretta J. Ross delivers a TED Talk about the importance of "calling in" instead of "calling out." She suggests that calling in is necessary to build a world that invites people in instead of pushing them out. Ross also criticizes "cancel culture" and emphasizes the idea of "calling on" someone to be a better person. She emphasizes forgiveness as a powerful tool for calling people in and provides examples of how to engage with those who hold bigoted views. Ross invites others to join her in the calling-in culture to challenge bigotry in a way that offers people a chance to redeem themselves.
+
+Detail Summary: 
+00:00:00
+In this section of the TED Talk, Loretta J. Ross speaks about the importance of "calling in" rather than "calling out" when it comes to human rights work. She describes how her mentor, civil rights leader Reverend C.T. Vivian, taught her that when asking people to give up hate, it's important to be there for them when they do. Ross explains that a "calling-in culture" is necessary to build a world that invites people in instead of pushing them out. She also criticizes "cancel culture," stating that calling someone out often results in a fight, not a conversation, and that it is often done out of fear or a desire to belong. Ross argues that a new way to understand how to truly achieve justice is with a focus on how we do things, not just what we do.
+
+00:05:00
+In this section, speaker Loretta J. Ross discusses the culture of "call-outs" and how it can sometimes cause more harm than good. Instead, she emphasizes the concept of "calling in", which is a call-out done with love and empathy. By leading with love instead of anger, we can invite others into a conversation and make a difference in the world. Ross also suggests the idea of "calling on" someone to be a better person, which can be used as part of a spectrum of responses in order to show grace and offer opportunities for growth.
+
+00:10:00
+In this section, Loretta J. Ross discusses how the act of forgiveness can be a powerful tool for calling people in. She shares an example of how Chris Singleton, the son of one of the victims in the 2015 church massacre in Charleston, offered forgiveness to the gunman. Ross also shares her personal experience of how she responded to her Uncle Frank's racist remarks without attacking him, but instead, asked him a question that would allow him to reconcile his racism with the good person she knows he is. Ross emphasizes that calling people in is not about ignoring or accepting bigotry, but rather, it's about challenging it in a way that offers people a chance to redeem themselves from their mistakes. She invites others to join her in the calling-in culture and emphasizes that fighting hate should be fun and not the other way around.
+

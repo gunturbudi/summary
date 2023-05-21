@@ -1,0 +1,14 @@
+# Summary of Why good leaders make you feel safe | Simon Sinek
+
+In the YouTube video "Why good leaders make you feel safe | Simon Sinek", Simon Sinek argues that good leaders make people feel safe and comfortable, which allows for remarkable things to happen. He shares stories of leaders who have gone above and beyond for their followers, and urges organizations to create a culture where leaders are chosen based on their ability to put the interests of their followers first.
+
+Detail Summary: 
+00:00:00
+Captain William Swenson was awarded the congressional Medal of Honor for his actions on September 8, 2009. On that day, a column of American and Afghan troops were making their way through a part of Afghanistan to help protect a group of government officials, a group of Afghan government officials, who would be meeting with some local village elders. The column came under ambush, and was surrounded on three sides, and amongst many other things, Captain Swenson was recognized for running into live fire to rescue the wounded and pull out the dead. One of the people he rescued was a sergeant, and he and a comrade were making their way to a medevac helicopter. What was remarkable about this day is, by sheer coincidence, one of the medevac medics happened to have a GoPro camera on his helmet and captured the whole scene on camera. It shows Captain Swenson and his comrade bringing this wounded soldier who had received a gunshot to the neck. They put him in the helicopter, and then you see Captain Swenson bend over and give him a kiss before he turns around to rescue more. I saw this, and I thought to myself, where do people like that come from? What is that? That is some deep, deep emotion, when you would want to do
+
+00:05:00
+According to Simon Sinek, good leaders make people feel safe and comfortable, which allows for remarkable things to happen. One example he gives is of a passenger trying to board a plane before his number was called, and the gate agent treating him like a criminal. He says that this is what makes flying Southwest Airlines so pleasant, as they do not fear their leaders and the people are not treated like cattle. Chapman, the CEO of Barry-Wehmiller, implemented a policy of lifetime employment, which helped the company save 20 million dollars in the recession.
+
+00:10:00
+Simon Sinek argues that good leaders make people feel safe and protected, which creates a natural response of people giving their blood, sweat, and tears for the leader. He shares the story of Marines who let their officer eat last and how this decision created a sense of camaraderie and mutual respect between the leader and his followers. He concludes by urging organizations to create a culture where leaders are chosen based on their ability to put the interests of their followers first.
+

@@ -1,0 +1,11 @@
+# Summary of How equal do we want the world to be? You'd be surprised | Dan Ariely
+
+Dan Ariely, a behavioral economist, conducted large-scale surveys in the US and other countries to determine people's perceptions of wealth inequality. Results showed that people's perceptions were deeply skewed from reality. He also points out that philosopher John Rawls defined a just society as one that people are willing to enter at a random place, which is useful in determining what people consider objective when it comes to issues of wealth and social justice. Ariely suggests focusing on people who lack agency, such as children, to combat inequalities and to consider the placebo effect in decision-making processes, particularly in policy decisions.
+
+Detail Summary: 
+00:00:00
+In this section, behavioral economist Dan Ariely discusses how our preconceived notions and expectations can color our views toward preconceived notions of inequality. Analyzing large-scale surveys across the U.S. and other countries, Ariely found that people have vastly different perceptions of what level of wealth inequality is concentrated in certain populations, and that these perceptions are deeply skewed from reality. Even more interestingly, he notes that the philosopher John Rawls defined a just society as one that you would be willing to enter at a random place, meaning that people do not know which part of society they will be entering, and this definition proves useful in understanding what people consider objective, or in a "blind taste" scenario, when it comes to issues of wealth and social justice.
+
+00:05:00
+In this section, Dan Ariely discusses the gaps between what people think they have and what they actually have in terms of wealth and other factors, as well as the gaps between what people think is right and what they think they have. He explains that people dislike inequality of wealth, but inequality in areas such as health or education is even more aversive. Ariely suggests that the answer may be to focus on people who lack agency, such as young children, in order to combat inequalities. Finally, he highlights the importance of considering what is real versus what is the placebo effect in our decision-making processes, particularly in regards to policy decisions that affect everyone.
+

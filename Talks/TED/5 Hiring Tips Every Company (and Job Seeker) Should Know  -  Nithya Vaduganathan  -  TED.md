@@ -1,0 +1,11 @@
+# Summary of 5 Hiring Tips Every Company (and Job Seeker) Should Know | Nithya Vaduganathan | TED
+
+In her TED talk, Nithya Vaduganathan emphasizes the need to replace outdated hiring practices by focusing on tasks to be completed rather than on ridiculous requirements when posting job openings. She suggests that managers change the criteria for screening candidates and focus on the 70 to 80 percent of skills that are most needed, while checking their own biases. Furthermore, she gives tips on how to find hidden talent within an organization, including using micro internships to reach students in non-traditional schools, looking beyond the floor to find skills within the same company but in different teams, and supporting employees to move internally. She says that taking a fresh look is key to discovering hidden talent in today's job market.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker emphasizes that to fill 21st-century jobs, outdated practices need to be replaced. She advises leaders to figure out the tasks that require completion before posting a job opening rather than putting forth ridiculous requirements that only Pegasus could fulfill. The criteria for screening candidates also needs to change, as easily identifiable traits like degree requirements are not always predictive of success in the job. High GPA, past experience working in a team, and past client and sales' experience were found to be important in predicting success for a wealth management firm BCG worked with. Hiring managers should focus on the 70 to 80 percent of skills that matter the most and should check their own biases. In sum, leaders need to consider new approaches to attract and retain talent that is hiding in plain sight.
+
+00:05:00
+In this section, the speaker gives tips on how to find hidden talent within an organization. She suggests starting with micro internships to reach students in schools that the companies might not typically search for. Additionally, she advises managers to look beyond their floor to find the talent that they need, as the required skills may exist in the same company but in a different team. She also urges leaders to support their employees in moving internally and not to hoard their talents. Lastly, she says that taking a fresh look is the way to discover hidden talent.
+

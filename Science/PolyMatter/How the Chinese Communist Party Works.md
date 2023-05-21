@@ -1,0 +1,19 @@
+# Summary of How the Chinese Communist Party Works
+
+Source: https://youtube.com/watch?v=vre_yhZXPVU
+
+This video discusses how the Chinese Communist Party works and sheds light on the National Party Congress, the tasks of the delegates, and the important role of political maneuvering in politics in China. The video highlights how political power is won through skillful maneuvering and decision-making, illustrated through the unique rise to power of Xi Jinping, the leader of the Chinese Communist Party, who is the most powerful Chinese leader since Mao Zedong. Despite the implementation of term limits and "intra-party democracy" in the early 2000s, Xi Jinping has reversed this progress, and with no designated successor or competition, there appears to be no end to his rule in sight. Viewers can gain insight into China's current situation by watching the creator's Nebula Original series "China, Actually."
+
+Detail Summary: 
+00:00:00
+In this section, the video discusses the process of the National Party Congress in China, where 2,300 delegates gather every five years to reflect on the past five years and set priorities for the next. Despite the appearance of harmony and representation, the event is merely a spectacle, with most delegates being low-ranking party members and the real decisions having been made much earlier in secret meetings. The party leader delivers a long speech called the "Political Report," using vague slogans to reflect on the past and set priorities for the future. Despite the implementation of term limits and "intra-party democracy" in the early 2000s, Xi Jinping has reversed this progress, and with no designated successor or competition, there appears to be no end to his rule in sight.
+
+00:05:00
+In this section, we learn about the important tasks that delegates have to perform at the National Congress, which include electing members of the Central Committee and the Political Bureau, who in turn 'elect' a Standing Committee of seven or nine people; one of these individuals is the General Secretary of the Party, who in this case, is Xi Jinping. It is important to note that China is a Party-State, meaning it has a government and a single ruling party that mirror each other, but they are not the same. Additionally, while many leaders hold both titles of President and General Secretary, party positions typically carry more influence and authority in China.
+
+00:10:00
+In this section, the video discusses how political power in China is not always the product of holding a specific title, but rather it has to be won through skillful maneuvering and strategic decision making. This is exemplified through the unique rise to power of Xi Jinping, who unlike many of his princeling peers, kept his head down and took low-profile jobs outside the city, allowing him to climb the ranks without facing competition. His competitors were either due for retirement, lacked connections and privileges, or were removed due to reputational stains, leaving Xi with only three major competitors. Ultimately, Xi's skillful political maneuvering led to his successful consolidation of power, reorganization of the military, and launch of an enormous anti-corruption campaign.
+
+00:15:00
+In this section, the video highlights that Xi Jinping, the leader of the Chinese Communist Party, is the most powerful Chinese leader since Mao Zedong. Unlike Mao, Xi has helped to solidify his power through purging rivals and enshrining his name in the party constitution. Understanding China requires learning from its past while remaining aware of the present, which is the goal of the creator's Nebula Original series "China, Actually." Through this series, viewers can gain insight into the country's current situation, such as why some protests are tolerated and others are not, and why the country is still trying to maintain zero cases of COVID-19 in late 2022.
+

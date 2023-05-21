@@ -1,0 +1,11 @@
+# Summary of Daniel H. Cohen: For argument's sake
+
+Daniel H. Cohen examines the concept of arguments from various perspectives, questioning why people continue to argue and what good arguers win. He discusses three models of arguments – dialectical, arguments as proofs, and rhetoric, with the first being the dominant one, but with deforming effects that can elevate tactics instead of substance. Cohen views the argument-as-war metaphor as problematic as it creates a negative impact on conflict resolution, education and the cognitive gain of well-articulated beliefs. He proposes new entry approaches to arguments that may lead to new exit strategies, allowing for the appreciation of the cognitive gain that comes from losing.
+
+Detail Summary: 
+00:00:00
+In this section, Dan Cohen discusses his fascination with arguing and the puzzles it presents. He wonders why he continues to argue and why he is fine with losing. He focuses on academic arguments and questions what good arguers win when they win an argument. He suggests three models for arguments: the first is the dialectical model, which is thinking about arguments as war; the second is arguments as proofs, where mathematicians use arguments to prove something; and the third is rhetoric, which is thinking of arguments as performances. While the dialectical model is the dominant one, it has deforming effects on how people argue. It elevates tactics over substance, magnifies the us-versus-them aspect, and only considers triumph as a plausible outcome.
+
+00:05:00
+In this section, Daniel H. Cohen discusses the negative effects of the argument-as-war metaphor, which he believes can be seen in how arguments often result in a fight or dead end, while preventing other forms of conflict resolution such as compromise and collaboration. From an educational perspective, Cohen views the metaphor as problematic because it associates learning and losing, thereby devaluing the cognitive gain of a well-articulated belief. Cohen suggests new entry approaches to arguments may create new exit strategies, such as having an audience watch oneself argue and lose a debate while still considering it a good argument. Such an approach allows for the appreciation of the cognitive gain that comes from losing.
+

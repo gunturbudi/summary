@@ -1,0 +1,14 @@
+# Summary of A practical way to help the homeless find work and safety | Richard J. Berry
+
+Mayor Richard J. Berry shares his experience of thinking differently about panhandling and lifting homeless people up through the dignity of work. His initiative, "There's a Better Way," offers jobs to panhandlers through a van that travels to different street corners. The Better Way program utilizes a nonprofit partner, St. Martin's Hospitality Center, to provide panhandlers with day work paid at a rate of $9 per hour. The program has helped clean up 400 city blocks and pick up over 117,000 pounds of trash, weeds, and litter. Last year, unsheltered homelessness was reduced by 80 percent and chronic homelessness by 40 percent in Albuquerque. Berry encourages other cities to step up and lift people out of social issues through working with dignity.
+
+Detail Summary: 
+00:00:00
+In this section of the video, Richard J. Berry, the Mayor of Albuquerque, New Mexico, shares his experience of thinking differently about panhandling and lifting people up through the dignity of work. He talks about his initiative called "There's a Better Way," which seeks to offer jobs to panhandlers through a van that travels to different street corners. Berry believes that there is dignity in work and that by investing in people first, they are more likely to invest in themselves. He also highlights the importance of having a solution that actually works, in contrast to punitive approaches that do not address the root cause of the problem.
+
+00:05:00
+In this section, Mayor Richard J. Berry shares how his Better Way program in Albuquerque utilizes the agility of a nonprofit partner, St. Martin's Hospitality Center, to provide panhandlers in the community with day work paid at a rate of $9 per hour. This program has helped clean up 400 city blocks and pick up over 117,000 pounds of trash, weeds, and litter. The program's success was due to building community trust and educating residents on how they could help more by giving to shelters and food banks rather than giving money to panhandlers directly. Through the day work program, 216 individuals have been connected to permanent employment opportunities while working side-by-side with city employees.
+
+00:10:00
+In this section, Richard J. Berry reports his pride in what Albuquerque has done to fight homelessness. With two powerful programs he describes--Albuquerque Heading Home and There's a Better Way--he notes that last year, unsheltered homelessness was reduced by 80 percent and chronic homelessness by 40 percent. As a result, by HUD's definition, the city has ended veteran homelessness. He believes working with dignity is key and is excited to see other mayors implementing programs in their cities. Berry asks cities to step up, ready to think differently and lift people out of these social issues, allowing communities to be made better.
+

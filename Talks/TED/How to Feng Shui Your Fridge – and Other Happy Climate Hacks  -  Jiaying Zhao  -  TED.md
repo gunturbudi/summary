@@ -1,0 +1,14 @@
+# Summary of How to Feng Shui Your Fridge – and Other Happy Climate Hacks | Jiaying Zhao | TED
+
+Jiaying Zhao speaks about the "happy climate approach" to climate action, emphasizing the need to identify actions that reduce greenhouse gas emissions and increase happiness, such as adopting a plant-based diet or treating ourselves to high-quality, long-lasting products. She also shares tips for reducing waste and carbon emissions, such as organizing the fridge with feng shui tricks and carpooling or biking. Zhao suggests that a focus on individual actions that provide personal happiness can lead to collective action and broader structural change, and that governments can invest in climate-friendly infrastructure to provide accessible opportunities for citizens to engage in happy climate actions.
+
+Detail Summary: 
+00:00:00
+In this section, JZ discusses the concept of the "happy climate approach," where actions that reduce greenhouse gas emissions and make people feel happier are identified. She argues that the current narrative on climate action, which emphasizes personal sacrifice, makes people feel guilty and disengaged. Instead, JZ and her colleague, Elizabeth Dunn, identify actions that reduce emissions and increase happiness, such as adopting a plant-based diet, which can reduce agricultural emissions by up to 80% and increase mental and physical health. JZ argues that individual actions do matter and can lead to collective action and broader structural change.
+
+00:05:00
+In this section, Jiaying Zhao discusses how our diet, shopping habits, and waste management can impact both our happiness and the environment. She emphasizes the importance of having a balanced diet that includes both meat and plants while reducing the consumption of beef. For shopping, she suggests treating ourselves to high-quality, long-lasting products and only purchasing new products when necessary. She also shares a feng shui trick for organizing our fridge to reduce waste, as well as advocating for carpooling with friends or biking to reduce carbon emissions. Finally, she recommends bundling trips to reduce unnecessary flights for both the environment and our mental well-being.
+
+00:10:00
+In this section, the speaker discusses the relationship between time affluence and happiness, as well as how time-saving purchases can lead to a decrease in stress levels. She suggests that individuals can make choices that both reduce emissions and provide personal happiness, such as bundling flights and walking in nature. Additionally, she argues that governments should invest in climate-friendly infrastructure, like urban green spaces, to provide accessible opportunities for citizens to engage in happy climate actions. The speaker concludes that by changing the narrative on climate action and making it feel good, we can create a happier future.
+

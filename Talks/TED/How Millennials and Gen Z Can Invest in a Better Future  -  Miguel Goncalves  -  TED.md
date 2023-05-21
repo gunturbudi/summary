@@ -1,0 +1,11 @@
+# Summary of How Millennials and Gen Z Can Invest in a Better Future | Miguel Goncalves | TED
+
+In his TED Talk, Miguel Goncalves discusses the concept of ESG investing, which focuses on investing in sustainable practices and allocating money to companies with better relationships with customers, employees, and suppliers. He suggests that standardizing ESG metrics and integrating predictive non-financial data into financial models can make ESG and sustainability mainstream, but the most crucial solution is creating trust in sustainable companies as they are believed to have lower risk. Goncalves urges millennials and Gen Zers to start thinking about their savings and investments and ask fund managers what they plan to do with their assets and what metrics they use.
+
+Detail Summary: 
+00:00:00
+In this section, Miguel Goncalves discusses the concept of ESG investing, which stands for environmental, social, and governance. ESG promises to invest in sustainable practices and allocate money to companies with better relationships with customers, employees, and suppliers, among other things. However, a recent survey suggests that many institutional investors are still hesitant about the benefits of ESG investing. Goncalves reminds us that investment decisions are made by people and the economy is made of people, which means that expectations can be a force for good or bad. The power of expectations can either create reality or hold us back from achieving the full promises of ESG investing.
+
+00:05:00
+In this section, the speaker discusses solutions to making ESG and sustainability mainstream. One of the solutions is to standardize ESG metrics to measure what matters for individual companies instead of what investors cherry-pick. Another solution is to integrate predictive non-financial data, along with the financial data, into financial models. The third and most crucial solution is creating trust in sustainable companies because they are believed to have lower risk. This virtuous cycle will help improve trust in the system, and ESG becomes an indelible part of any company. The speaker urges fellow millennials and Gen Zers to start thinking about their savings and investments, ask their fund managers what they plan to do with their assets and what metrics they use and why.
+

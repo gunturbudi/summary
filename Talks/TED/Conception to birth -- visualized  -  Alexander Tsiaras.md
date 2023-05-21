@@ -1,0 +1,11 @@
+# Summary of Conception to birth -- visualized | Alexander Tsiaras
+
+In a TED Talk, mathematician and photographer Alexander Tsiaras talks about the development of a fetus from conception to birth using micromagnetic resonance imaging, displaying the complexity of the genetic structures that instruct the body in creating an entire human. Tsiaras expresses wonder at the intricacies of the vascular system that extends nearly 60,000 miles from the tiny capillary network that nourishes our organs. Beyond the marvel of creation and development, he emphasizes the stunning ability of women's bodies to nurture and treat new lives in ways beyond human comprehension.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker talks about his previous work on developing algorithms and code for virtual surgery in preparation for astronauts to go into deep-space flight, using new scanning technologies to see things in the body that had never been seen before. He then goes on to describe his work on scanning the development of a fetus from conception to birth using micromagnetic resonance imaging, which he segmented into several phases and showed a sample of the piece titled "From Conception to Birth." The piece includes various images of the fertilized ovum dividing, the development of the heart, arms, hands, primitive vertebrae, and more, with the speaker noting that if the fetus grew at the same pace for nine months, it would weigh 1.5 tons at birth.
+
+00:05:00
+In this section, Alexander Tsiaras, a mathematician and photographer, talks about the marvels of the biological mechanism that converts clusters of cells into complete human beings. Tsiaras displays the complexity of the genetic structures that instruct the body in creating an entire human and comments that it is beyond human comprehension how these instruction sets do not make any human errors building the body. Tsiaras also speaks about the intricacies of the vascular system, which extends nearly 60,000 miles from the tiny capillary network that forms and nourishes our organs. He expresses that beyond the marvel of the existence, creation and development of human beings, there is the stunning ability of women's bodies to nurture and treat new life in ways that are beyond what humans can comprehend.
+

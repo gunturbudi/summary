@@ -1,0 +1,14 @@
+# Summary of Jonathan Trent: Energy from floating algae pods
+
+Jonathan Trent of the OMEGA Global Initiative proposes the development of biofuels from microalgae that don't compete with agricultural products. The OMEGA system would contain wastewater and oil-producing microalgae in a modular plastic structure powered by wave energy that used solar energy to grow algae, sequester CO2, and produce oxygen. The OMEGA system could offer sustainable solutions such as wastewater treatment, carbon sequestration, and sustainable energy production while also enhancing marine habitat and aquaculture. Moreover, the OMEGA system has potential applications in repurposing plastic mulch used in farms and recycling it for future use. However, its success requires the collaboration of individuals outside of NASA.
+
+Detail Summary: 
+00:00:00
+In this section, Jonathan Trent proposes the development of biofuels from microalgae that compete with fossil fuels without competing with agriculture. He suggests building enclosures filled with wastewater and oil-producing microalgae that will use solar energy to grow, sequester CO2s and produce oxygen while being contained in a modular plastic structure that moves with waves powered by wave energy. Trent believes that the system, called OMEGA, can offer a solution to treat waste water in coastal cities and create biodegradable algae products while enhancing marine habitat.
+
+00:05:00
+In this section, Jonathan Trent, an OMEGA Global Initiative scientist, describes the process of setting up a laboratory that grows algae, which allowed him to monitor them and look for ways to make them happier as they produce oxygen that can suffocate them. Algae needs CO2 for growth, which often isn't available in a tubular plastic environment, so they developed a column that circulated some of the water and put back CO2. After accumulating the algal biomass that concentrated at the bottom of this column, they could easily harvest it. Additionally, Trent and the team worked in four areas: biology, engineering, environmental impact, and economics.
+
+00:10:00
+In this section, Jonathan Trent discusses the possibility of using the OMEGA system not only for producing biofuels but also for wastewater treatment, sequestering carbon, and generating other forms of sustainable energy like wave, wind, and photovoltaic energy. The integration of these various activities could also include aquaculture for growing mussels, scallops, oysters, and other high-value products and food. The OMEGA system could also potentially help repurpose plastic mulch used in farms by using them in the marine environment, and recycling them to be later used for farms. It could be scaled to fit large volumes of waste and produce biofuels, and it could be deployed in a variety of locations with rising sea levels. Ultimately, the system requires the collaboration of people outside of NASA to be successful.
+

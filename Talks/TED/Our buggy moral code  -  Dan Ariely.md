@@ -1,0 +1,17 @@
+# Summary of Our buggy moral code | Dan Ariely
+
+Dan Ariely shares his research on irrational human behavior, particularly the tendency to rely on outdated or ineffective beliefs despite better options being available. Through experiments on pain, duration, and cheating, Ariely discovered various factors that influence moral decision-making, such as social norms and personal gain. He emphasizes the importance of testing our intuitions and being aware of these influences to make ethical decisions. Ariely believes that testing our own intuitions through systematic experimentation can lead to a better moral code and ultimately, a better life.
+
+Detail Summary: 
+00:00:00
+In this section, Dan Ariely recounts his experience in the hospital and how it led him to study irrational human behavior. He uses the example of nurses ripping bandages off burn victims to explain how people often rely on what they believe is the "right approach" despite other more effective methods being available. Ariely ran experiments on pain and duration using a carpenter's vise, electrical shocks, and a pain suit, ultimately discovering that people encode intensity but not duration. He then shifted to studying cheating and how it's not just limited to a few bad actors, but rather a more general problem.
+
+00:05:00
+In this section, Dan Ariely discusses his experiments on cheating and how they challenge the traditional economic theory of cost-benefit analysis. He found that people will cheat a little bit even when the likelihood of getting caught increases and the rewards are minimal. Instead of purely economic incentives, Ariely argues that people are driven by a “personal fudge factor” where they want to maintain a positive self-image. This factor can be manipulated, such as when people who were asked to recall the Ten Commandments were less likely to cheat. In contrast, individuals who signed an honor code pledging not to cheat did not cheat at all. Through his experiments, Ariely found that while people want to follow social norms, they will cheat when it does not conflict with their self-image.
+
+00:10:00
+In this section, Dan Ariely discusses the results of several experiments that demonstrate how cheating behavior is influenced by various factors, such as proximity to money, social norms, and personal gain. He found that people were more likely to cheat when the money was less visible or when they saw others cheating in their in-group. However, when reminded of their morality, people were less likely to cheat. Ariely notes that these factors have important implications in areas such as the stock market and policy-making, where people may be incentivized to cheat or engage in unethical behavior. He emphasizes the importance of testing these intuitions and being aware of the various influences on our decisions.
+
+00:15:00
+In this section, Dan Ariely discusses how difficult it can be to challenge our own intuition, as most of us tend to believe that our intuition is always correct. He shares an example of a nurse who refused to test her intuition about the efficacy of torture as a pain management technique because she truly believed her intuition was correct. Ariely argues that unless we start testing our intuitions through systematic experimentation, we won't be able to improve our moral code or make better decisions in our lives. He concludes by emphasizing how much better life would be if we all started testing our own intuitions.
+

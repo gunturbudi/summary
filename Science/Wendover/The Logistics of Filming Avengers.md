@@ -1,0 +1,16 @@
+# Summary of The Logistics of Filming Avengers
+
+Source: https://youtube.com/watch?v=erS2YMYcZO8
+
+The logistics of filming a movie involve finding the perfect location for a given scene while navigating legal and logistical aspects of organizing on-location shoot, according to a video about the filming of Avengers. Location scouts and managers are responsible for selecting locations, obtaining permits and negotiating deals, and managing the burden of filming on local residents. The video also discusses the complexities of bringing equipment to a different country for filming, hiring in-country employees, and the importance of community satisfaction during production. Marvel's approach of hiring local businesses and using residents as extras during the filming of Avengers in St Abbs, Scotland is highlighted as a successful strategy that provided economic benefit to the town and good publicity for the production.
+
+Detail Summary: 
+00:00:00
+In this section, we learn about the importance of location scouts and location managers in the logistics of filming a movie. Location scouts are responsible for finding the perfect location for a given scene in a movie that fulfills the wishes of the director and writer. Once a location is selected, the location manager takes over and navigates the legal and logistical aspects of organizing the on-location shoot, including getting permits from the local government, negotiating deals, and managing the burden of filming on local residents. They have to balance the promotion of the film industry with serving the population of the location. The example of New York's Mayor's Office of Film, Theatre & Broadcasting is given as an agency that fills this role and manages the permitting process for filming in the city.
+
+00:05:00
+In this section, the video talks about the complexities of bringing equipment to a different country for filming and the ways to get around the import tariffs. For example, the production company can rent equipment from the location country or acquire an ATA carnet, a passport for goods needed to be imported temporarily without tax payment. When it comes to staffing, it is more cost-efficient to hire in-country employees rather than flying them out if possible. The video also talks about the different location units in charge of shooting footage for the movie's visual effects department, such as Brazilian and Philippine national parks. Finally, the importance of having the local community have a positive experience during production is discussed, using the filming in St Abbs, Scotland, as an example.
+
+00:10:00
+In this section, it is discussed how Marvel made smart decisions to win over the residents of St Abbs during the filming of Avengers, such as hiring local businesses and using residents as extras. This approach ultimately provided a win-win situation as the town saw an economic benefit long after the shoot, while Marvel was provided with a well-received location that generated good publicity. In general, it is important for location managers to keep filming as low impact as possible, and successful Hollywood productions can transform an area by bringing jobs to the community and attracting tourism. The promotion of CuriosityStream and Nebula is also highlighted as a way to support educational creators outside of the realm of YouTube's algorithms.
+

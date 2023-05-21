@@ -1,0 +1,25 @@
+# Summary of “These Create Traumas in the Child!” - Parents Beware! Family Counselor Warned!
+
+Source: https://youtube.com/watch?v=oBKRro8KbQM
+
+A family counselor shares advice for parents, warning them of the traumas that can arise during a child's development if they do not provide proper care and attention. The counselor stresses the importance of emotional development, emphasizing the need for parents to establish a bond of love and trust with their child. They advise against imposing goals on the child and recommend parental compassion and the avoidance of excessive gift-giving. Additionally, the counselor notes the importance of allowing the child to choose their own goals and to prioritize the emotional development of the child over their physical development.
+
+Detail Summary: 
+00:00:00
+In this section, the family counselor emphasizes the importance of childhood education in terms of preparing the environment for children to develop their potential and guiding them properly rather than directly interfering with them. Any emotional and psychological problems the mother experiences during pregnancy can also affect the child's development. Fathers should value their wives and prioritize their relationship because the child's emotional construction is significantly impacted by the environment in which they are raised. The counselor also discourages conservative families from forcing their children into a particular religion or identity, as this can distance the child from that identity rather than bringing them closer to it.
+
+00:05:00
+In this section, a family counselor discusses the importance of emotional development in children and how a mother's compassion can play a significant role. According to the counselor, a child who is breastfed but does not receive love will complete their physical development but have weak emotional development. It's necessary to ensure the emotional development of a child, and child education is not only about setting rules but teaching how to study per se. Emotional development is affected by the emotional closeness between parents, and a bond of love and trust needs to be established at home. If a child feels safe in an atmosphere of love and compassion, feels valuable and accepted, they will complete their emotional development.
+
+00:10:00
+In this section, the family counselor talks about the negative effects of parents trivializing, humiliating or excluding their children. He explains that children who are always pushed aside or do not feel valued can become depressed very quickly. The counselor advises parents to establish a bond of love and trust with their child first, as the child imitates and learns from the people they love. He gives an example of Prophet Muhammad’s bond with a young boy, to emphasize the importance of parental love and trust. The counselor also stresses the need for parents to be mindful of who is affecting their child’s heart as they tend to imitate whoever they have an emotional connection with.
+
+00:15:00
+In this section, the family counselor advises parents to allow their child to choose and set their own goals rather than imposing their own goals on them. Parents can sit together with the child and exchange ideas, encourage the child's enthusiasm and sparkle when they talk about their goals. Parents should not break the bond of trust and love with their child or deprive the child of being the captain. The counselor also shares scientific data and advises working parents to take a long unpaid leave, if possible, up to the age of three, to avoid separation anxiety, depression and make their children feel more confident and brave.
+
+00:20:00
+In this section, the family counselor warns parents of the traumas they can cause in a child's development if they do not provide proper care and attention. Until the age of three, the child still perceives themself as part of their mother instead of an individual, and it's critical to establish a strong maternal bond during that period. Otherwise, the child may develop attachment and trust issues in the future. Additionally, parents must avoid spoiling their children with aggressive gift-giving and establish security and love for the child's emotional development. Finally, the counselor suggests that lying in children is a result of fear and oppression, and to prevent it, parents should alleviate any pressure at home, listen to their children's requests, and eliminate any fear culture.
+
+00:25:00
+In this section, the family counselor emphasizes the importance of compassion in child education by drawing a comparison to the animal world. He notes that even the clawed lion uses the soft parts of its paws to interact with its cubs, and parents should similarly not deprive their children of their mother's compassion. He advises fathers to invest in mothers and for both parents to establish a bond of affection with their children. The counselor emphasizes that the relationship and lifestyle of the parents serve as models for their children and therefore they should lead a life that reflects what they want their children to be.
+

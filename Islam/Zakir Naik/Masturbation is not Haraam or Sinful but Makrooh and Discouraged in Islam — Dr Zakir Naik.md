@@ -1,0 +1,20 @@
+# Summary of Masturbation is not Haraam or Sinful but Makrooh and Discouraged in Islam — Dr Zakir Naik
+
+Dr. Zakir Naik discusses the varying opinions of Islamic scholars on the permissibility of masturbation in Islam. While the majority say it is haram (forbidden), a significant number say it is makrooh (discouraged) or mubah (optional). The scholars who believe it is makrooh see guarding one's private parts as only pertaining to sexual intercourse within marriage. Dr. Naik explains that while normal masturbation is not harmful, it can lead to haram activities such as watching pornography. He suggests fasting as an alternative and warns against letting guilt lead to mental stress. Ultimately, he maintains that there is no evidence in the Quran or hadith to support the idea that masturbation results in punishment.
+
+Detail Summary: 
+00:00:00
+In this section, Dr. Zakir Naik discusses the different opinions of Islamic scholars on the permissibility of masturbation in Islam. While the majority of scholars say that it is haram (forbidden), there is a large number that say it is makrooh (discouraged), and another large number that say it is mubah (optional). The Shafi and Maliki jurists both believe that masturbation is haram, citing Surah 23 of the Quran, which states that believers should guard their private parts and only have sex with their spouses or what their right hand possesses.
+
+00:05:00
+In this section, Dr. Zakir Naik discusses the different viewpoints of scholars regarding the permissibility of masturbation in Islam. The first group of scholars believe that masturbation is haram based on the hadith that encourages young people to get married or fast instead, without explicitly mentioning masturbation. However, the second group of scholars see the guarding of one's private parts as only pertaining to sexual intercourse with one's spouse, meaning that masturbation is not included. Additionally, Ibn Hasan notes that the Prophet permitted touching one's private part and emitting fluid. Therefore, the second group of scholars argue that if one can enjoy sexual pleasure with their spouse, then self-stimulation should also be permissible.
+
+00:10:00
+In this section, Dr. Zakir Naik discusses the different opinions of Islamic scholars on whether masturbation is haram or not. The majority of scholars believe it is haram based on the verse from Surah al-Mu'minun, but the second group believes there is no clear evidence in the Quran or Say Hadith to support this view. They put masturbation in the makruh category, which means it is discouraged. The third group of scholars believes it is mubah or permissible and even goes as far as saying that there is no harm or sin in doing it. However, they also acknowledge that marriage is better than masturbation, and it is not the deeds of nobility.
+
+00:15:00
+In this section, Dr. Zakir Naik discusses the commonality of masturbation and the myths surrounding its harmful effects. He explains that while excessive masturbation can cause problems, normal masturbation according to medical science is not harmful. He agrees with the group of Islamic scholars who say that masturbation is Makrooh (discouraged) as there is no strong evidence from the Quran or Hadith to make it Haram (forbidden). He also mentions that masturbation is often associated with haram activities such as watching pornography, which makes it prohibited. Dr. Naik recommends fasting as a solution to reducing sexual urges, as suggested in the Hadith of Prophet Muhammad.
+
+00:20:00
+In this section, Dr. Zakir Naik discusses the topic of masturbation in Islam. He explains that while it is discouraged and belongs in the category of makruh, it is not haram or sinful. Dr. Naik warns against letting the guilt of masturbation cause mental stress, which can lead to bigger problems. He emphasizes that people should avoid it if possible, but if they cannot, it is better to masturbate than to commit zina or adultery. Dr. Naik suggests fasting as an alternative, but maintains that there is no evidence in the Quran or hadith to support the idea that masturbation results in punishment.
+

@@ -1,0 +1,14 @@
+# Summary of Rose George: Inside the secret shipping industry
+
+Rose George highlights the significance of the shipping industry, which brings 90% of world trade and has grown four times since 1970. However, she notes that the sea trade has gone unnoticed, termed "sea blindness" by the speaker. George runs away to sea on a medium container-sized ship and observes the few crews employed aboard modern ships, which are automated and consequently tire the seafarers who have to work long hours. She also discusses the acoustic habitat degradation of ocean creatures due to the propeller's noise in the water and how it harms creatures like whales and dolphins, which require communication through sound to feed and mate. Shipping emissions, mainly attributable to carbon emissions, contribute to around 3-4% of global emissions, leading to sustainable shipping initiatives. The speaker acknowledges the difficult and isolating life of Filipino seafarers on ships for months for good salaries and calls for more scrutiny, transparency to educates people about the industry and acknowledges the importance of sustainability.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the enormous size and importance of the shipping industry, which brings 90% of world trade and has quadrupled in size since 1970. However, she notes that the industry has become invisible to the general public and suffers from "sea blindness." The speaker ran away to sea on a mid-sized container ship and was surprised by the small number of crew members due to the efficiency of containerization and automation. However, this also means that the average seafarer is either tired or exhausted due to the punishing pace of modern shipping.
+
+00:05:00
+In this section of the video, Rose George explores the working conditions of seafarers and the multinational crews on ships since the introduction of an open registry system. She also discusses how shipping has contributed to damaging the acoustic habitats of ocean creatures due to the noise pollution created by propellers underwater, which can harm creatures like whales and dolphins that need sound to communicate, find feeding grounds, and mates. Shipping emissions are about 3-4% of total global emissions, comparable to aviation emissions, which has spurred interest in sustainable shipping initiatives.
+
+00:10:00
+In this section, the speaker reflects on her experience onboard a ship and the difficult and isolating life of Filipino seafarers who work for months at a time for good salaries. She commends the seafarers and the ships at sea for bringing us 90% of everything and argues that the shipping industry needs more scrutiny and transparency to educate the public about its importance and enable people to see the sea. She suggests that we can all benefit from learning about this secret industry.
+

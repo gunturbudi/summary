@@ -1,0 +1,11 @@
+# Summary of The brain benefits of deep sleep -- and how to get more of it |  Dan Gartenberg
+
+Dan Gartenberg, a sleep scientist, emphasizes the significance of deep sleep for health and well-being. Deep sleep is the most combative phase of sleep that helps the body to recover and process everyday experiences into long-term memories. As we age, our ability to get deep sleep declines, and lack of sleep negatively affects our mental and physical health. To tackle this problem, he and his team have developed technology that triggers deep sleep by playing sounds of the same frequency as the brainwaves observed during this phase of sleep. The study shows that it is possible to improve people's sleep health and track sleep without using electrodes. The goal is to enhance people's sleep quality by developing the right sound environment and sleep habitat.
+
+Detail Summary: 
+00:00:00
+In this section, sleep scientist Dan Gartenberg discusses the importance of deep sleep on our health and well-being. He explains how the circadian rhythm and lack of sleep is negatively impacting our lives, leading to an increase in health problems and a decrease in mental acuity. Gartenberg's research focuses on deep sleep, the most regenerative stage of sleep that allows our bodies to learn, recover, and turn daily interactions into long-term memories. However, as we age, our ability to get deep sleep decreases. Gartenberg and collaborators at Penn State have developed technology that utilizes specific sounds to stimulate deep sleep, leading to more efficient and restorative rest.
+
+00:05:00
+In this section, Dan Gartenberg discusses a study he conducted that used sound waves to improve deep sleep. The sound played was at the same frequency as the brain waves during deep sleep and primed the mind to have more of these regenerative delta waves. Participants were completely unaware that the sounds were being played, yet their brains responded with more delta waves. The study showed that it is possible to accurately track sleep without hooking people up to electrodes and improve people's sleep health. Gartenberg hopes to continue developing the right sound environment and sleep habitat to improve people's sleep quality.
+

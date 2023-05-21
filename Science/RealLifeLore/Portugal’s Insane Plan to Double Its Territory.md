@@ -1,0 +1,19 @@
+# Summary of Portugal’s Insane Plan to Double Its Territory
+
+Source: https://youtube.com/watch?v=T-0d9l_ZZCo
+
+Portugal plans to expand its maritime territory from Lisbon to halfway to North America across the Atlantic, making it one of the world's largest countries on paper. This plan will see the country enormously expand its oceanic territory, moving it to the 16th largest in the world when adding together land and maritime boundaries. Although Portugal lost much of its land territory, it plans on doubling the size of its territory by focusing on controlling the sea and its resources. In addition, the video calls for the protection of the ocean and its resources from pollution and dumping of garbage, highlighting the work of the charity Team Seas to remove 30 million lbs of trash from oceans, rivers, and beaches.
+
+Detail Summary: 
+00:00:00
+In this section, it is explained how Portugal was once a great power with a vast empire spanning across the globe. Despite losing much of that land territory, Portugal's ambitious plan to expand her oceanic territory will make her one of the world's largest countries, at least on paper. The plan will see her enormously expand her maritime territory from Lisbon to halfway to North America across the Atlantic, which will place her as the world's 16th largest country when adding together land and maritime territory. Portugal became the first European nation to expand beyond the European continent by conquering and settling colonies across the globe, but a series of increasingly bad misfortunes led to the unraveling of its empire.
+
+00:05:00
+In this section, we learn about Portugal's history of maintaining its empire across Africa and Asia, including its primary colonies in Angola and Mozambique. After the wave of authoritarianism that swept across Europe in the 1930s, Portugal resisted decolonization and instead referred to its overseas territories as legitimate provinces, despite treating them as colonies. Maps were created to showcase Portugal's vastness, but in reality, a very small percentage of the population in Mozambique became full official citizens of Portugal. The Portuguese government fought to keep its colonies at any cost, resulting in a 13-year-long guerrilla war in Africa that left Portugal overextended and isolated. By 1974, Portugal had spent 40% of its annual budget fighting to preserve its empire.
+
+00:10:00
+In this section, we learn about Portugal's plan to double its territory despite having lost all of its colonies and maintaining only its mainland and island territories. The United Nations conference on the law of the sea established rules for countries to lay legal claim to oceanic territories, which granted Portugal the world's 20th largest exclusive economic zone (EEZ). The extended continental shelf (ECS), beyond the EEZ, which allows countries to claim sovereignty over the ocean floor, could potentially give Portugal a maritime territory larger than India, expand Portugal's total maritime territory across the north Atlantic to over 3 million square kilometers, and move Portugal to the 10th largest maritime territory in the world, transforming it into the 16th largest nation overall when combined with land boundaries.
+
+00:15:00
+In this section, the video talks about Portugal's plan to double its territory, which involves controlling the sea and its resources rather than people and lands beyond it. The ocean provides us with vital resources for survival and regulates our climate, but we have been treating it poorly, as millions of tons of garbage, particularly plastic, are dumped into it every year. To address this, a charity called Team Seas aims to raise $30m by Jan. 1, 2022 to remove 30m lbs of trash from oceans, rivers, and beaches. The charity's partners, the Ocean Cleanup and Ocean Conservancy, will receive 100% of the money raised to achieve this goal.
+

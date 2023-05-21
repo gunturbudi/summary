@@ -1,0 +1,11 @@
+# Summary of Slavoj Žižek on Synthetic Sex and "Being Yourself" | Big Think
+
+Philosopher Slavoj Žižek comments on the issue with self-commodification and presenting an ideal self-image in online dating, which goes against the concept of love that requires small imperfections to be more interesting. He also discusses the ritual of humiliation that he notices during conversations with his friends, where dirty talk is exchanged. He notes that after the ritual, they can continue their conversation in a nice and polite manner. He shares his idea of a perfect date and ideal sexual situation, which involves the use of technological devices like electric dildos and plastic vaginas to let the machines take charge of sexual performance, so individuals can enjoy their date and conversations without worrying about sex.
+
+Detail Summary: 
+00:00:00
+In this section, philosopher Slavoj Žižek discusses the problem with online dating and the necessity of contingency in love. He points out that online dating involves self-commodification and an emphasis on presenting an idealized image of oneself, which does not accurately represent how love functions. Love, he argues, requires small imperfections or endearing foibles that make the object of desire more interesting. In psychoanalytic theory, this is referred to as the object cause of desire. While Žižek acknowledges the need for staging a certain image of oneself, he also believes that an excess of this will lead to the illusion of perfection, which is not true to human nature.
+
+00:05:00
+In this section, Slavoj Zizek discusses the ritual of humiliation that he notices during conversations with his friends. The group discusses and engages in dirty talk with each other, such as talking about sexual activities with each other's deceased mothers, which is a perverse superego duty. Zizek notes that, after performing this ritual of dirty talk, they can continue their conversation in a nice and polite manner. He also talks about the perfect date and ideal sexual situation, which involves the use of technological devices such as electric dildos and plastic vaginas, where the machines are in charge of sexual performance, allowing the individuals to enjoy their date and conversation without worrying about sex.
+

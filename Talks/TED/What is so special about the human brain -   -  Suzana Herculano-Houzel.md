@@ -1,0 +1,14 @@
+# Summary of What is so special about the human brain? | Suzana Herculano-Houzel
+
+The human brain is not special in the number of neurons, but it is unique in its size and energy requirements, according to Suzana Herculano-Houzel. The human brain has 86 billion neurons, with 16 billion in the cerebral cortex, making it the largest cortex of any animal. There is a mathematical relationship between brain size and the number of neurons, allowing for comparisons between species. Great apes do not have bigger brains than humans because they cannot afford the energy for both a large body and a large number of neurons. The human brain needs more energy than any other primate brain, which led our ancestors to invent cooking, freeing up time for other activities and leading to cultural evolution. Cooking is unique to humans and marks the start of humanity.
+
+Detail Summary: 
+00:00:00
+In this section, Herculano-Houzel explains how the belief that all brains are made in a similar way was the primary focus in neuroscience. According to this concept, larger brains must have cognitive abilities proportional to their size. However, the researcher suggests that this belief is not accurate. Herculano-Houzel used her methodology to count the human brain's neurons and discovered that humans have "the most neurons of any brain regardless of its size." Humans also have a larger cerebral cortex than expected, using more energy and making it distinct from other animals.
+
+00:05:00
+In this section, Suzana Herculano-Houzel explains how the human brain is not special in its number of neurons, rather it is just a large primate brain. The human brain has, on average, 86 billion neurons and 16 billion of these are in the cerebral cortex, which is the most neurons that any cortex has. The relationship between the size of a brain and its number of neurons can be described mathematically, making it possible to compare different species. Despite the human brain being larger than a generic primate with the same number of neurons, the math showed that great apes don't have larger brains than humans because they simply can’t afford the energy for both a large body and a large number of neurons. Therefore, there is a tradeoff between body size and the number of neurons in primates.
+
+00:10:00
+In this section, Suzana Herculano-Houzel explains that the human brain needs more energy than any other primate brain, but our bodies don't have the time or capacity to consume all that energy through raw food. This pushed our ancestors to invent cooking to digest food outside of their bodies, freeing up time for other activities. Cooking provided enough energy for our large brains, which became a major asset, allowing us to go beyond surviving to cultural evolution. Cooking, therefore, is unique to humans and marks the start of humanity.
+

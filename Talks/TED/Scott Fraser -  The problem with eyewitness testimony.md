@@ -1,0 +1,17 @@
+# Summary of Scott Fraser: The problem with eyewitness testimony
+
+Scott Fraser, a neurophysiologist, highlights the limitations of eyewitness testimonies and their role in wrongful convictions. He tells the story of Francisco Carrillo, wrongfully convicted due to eyewitness testimonies that were highly unreliable. Fraser used science to explain why eyewitnesses' accounts were highly unreliable and challenged the judge to go to the scene, where they reconstructed the entire crime, and the judge could see for himself how unreliable eyewitnesses can be. Fraser proposes that law students must have a background in sciences, technology, engineering, or mathematics to become judges and emphasizes the fallibility of memory, highlighting that accuracy is not determined by certainty or vividness.
+
+Detail Summary: 
+00:00:00
+In this section, the transcript describes a case of a man who was wrongfully convicted of a murder due to eyewitness testimony from six teenagers, all claiming that the suspect was the shooter they saw. However, there was no concrete evidence that connected the suspect to the murder as no gun, vehicle, or driver was ever found. The problem with this type of case is that it highlights the limitations of eyewitness testimonies and how it can lead to wrongful conviction, as demonstrated by numerous cases exonerated on the basis of later DNA analysis.
+
+00:05:00
+In this section, neurophysiologist Scott Fraser discusses how the brain fills in gaps in our memory without us realizing it, creating reconstructed memories that are not completely accurate. This, along with the fallibility of eyewitness testimony, was the motivation for a group of appeal attorneys to petition for a retrial for Francisco Carrillo, whom Fraser was hired to testify for as an expert in eyewitness memory identification and human night vision. Fraser used his expertise in photographic reconstruction to reveal that the poor lighting at the scene of the crime was inconsistent with the teenagers' claims that they could see well, casting doubt on their eyewitness testimonies.
+
+00:10:00
+In this section, Scott Fraser, a forensic psychologist recounts his experience in a case where eyewitnesses identified a shooter who killed a man. Fraser used science to explain why the eyewitnesses' accounts were highly unreliable. He told the judge that the light at the scene was too low for proper color perception, critical for face recognition, and that only scotopic vision was possible. He said that the depth of field was less than 18 inches away, so anyone standing a few feet away might as well have been far away, but the judge was still hesitant to grant a retrial. Fraser, therefore, challenged the judge to go to the scene himself, where they found the same identical conditions, reconstructed the entire crime, and the judge could see for himself how unreliable eyewitnesses can be.
+
+00:15:00
+In this section, the speaker shares an example of a wrongful conviction case where eyewitness testimony played a critical role in the trial. He emphasizes the importance of getting more science in the courtroom and proposes that law students are required to have a background in fields such as science, technology, engineering, and mathematics to become judges. He warns about the fallibility of memory and emphasizes that all memories are reconstructed, dynamic, malleable, and as a result, accuracy is not determined by vividness or certainty.
+

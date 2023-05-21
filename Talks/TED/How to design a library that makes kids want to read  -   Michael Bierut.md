@@ -1,0 +1,14 @@
+# Summary of How to design a library that makes kids want to read |  Michael Bierut
+
+Designer Michael Bierut discusses his involvement in the Library Initiative, aimed at improving New York City public schools' libraries to create an exciting new option for children with the aim of improving reading. Bierut designed a logo and, when insistent architect Richard Lewis noted the empty space between the shelf and ceiling, suggested creating a frieze of heroes looking down into the real library using pictures of the children. This launched a project that saw different artists bring stunning murals and installations to school libraries. Eventually, Bierut drove around New York and saw how the logos were implemented, meeting librarians dedicated to mesmerizing students with books. As a result, over 40,000 kids a year are inspired to love reading and books.
+
+Detail Summary: 
+00:00:00
+In this section, designer Michael Bierut talks about the Library Initiative created by philanthropic organization Robin Hood in an attempt to reform New York City public schools by improving their libraries, where every student had to pass through. Bierut was brought in to design a logo for the initiative, offering three options, including The Reading Room, OWL, and The Red Zone. The premise behind the initiative was to improve libraries to show kids an exciting new option, dispelling the idea that they are dull and boring places, but many students had never even been exposed to a library before.
+
+00:05:00
+In this section, Michael Bierut, a graphic designer and former president of the American Institute of Graphic Arts, talks about how he solved a unique problem faced by an architect called Richard Lewis, when constructing libraries for schools, regarding the empty space between the shelf and the ceiling which needed something like a mural. In response, Bierut suggested using pictures of the children, taken by his wife, Dorothy, and created a frieze of heroes looking down into the real library, launching a project that saw different artists bring their talent to the table, designing stunning murals and installations for the new libraries that were opened in the schools.
+
+00:10:00
+In this section, Michael Bierut, a graphic designer, narrates how he went from just designing a logo for a project to getting designers, illustrators and photographers to drive around New York and see how these logos were being implemented in the libraries. After almost giving up due to many ignored or humiliating experiences, he recounts the thrilling experience of meeting librarians dedicated to mesmerizing students with books. He narrates how one librarian would turn off all lights in the library except the light "that illuminated kids' faces," reminding herself why she comes to work every day. As a result, more than forty thousand kids a year are inspired to love reading and books.
+

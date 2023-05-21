@@ -1,0 +1,20 @@
+# Summary of Masturbation is not Haraam or Sinful but Makrooh and Discouraged in Islam - Dr Zakir Naik
+
+In this YouTube video, Dr. Zakir Naik discusses the topic of masturbation in Islam. While some scholars believe it is haram, others see it as makrooh or optional. Dr. Naik explains that there is no clear evidence in the Quran or Hadith prohibiting it and therefore classifies it as makrooh. He advises against excessive acts of self-pleasure and suggests fasting or marriage to reduce sexual urges. Overall, while it is discouraged, Dr. Naik aims to alleviate guilt feelings and provide clarity on the controversial topic.
+
+Detail Summary: 
+00:00:00
+In this section, Dr. Zakir Naik addresses the frequently asked question on whether masturbation is haram or not in Islam. While the majority of scholars maintain that it is haram, there is a large number who suggest that it is makrooh or even optional. Imam ashafi, for instance, cites a verse in the Quran that suggests individuals should abstain from illicit sex, except with their spouses or what their right hand possesses. However, there are differing interpretations on this verse, with some scholars arguing that it only pertains to guarding oneself against all types of sexual pleasure. Dr. Naik concludes by suggesting that the group of scholars he agrees with will be discussed later in the video.
+
+00:05:00
+In this section, Dr. Zakir Naik discusses the different views of Islamic scholars regarding the permissibility of masturbation in Islam. Some scholars argue that masturbation falls under the Quranic verse that permits sexual pleasure only with one's spouse and what their right hand possesses. However, others argue that this verse only refers to sexual intercourse and does not apply to masturbation. Additionally, some scholars point to a Hadith that recommends fasting as a means to control sexual desire as evidence that masturbation is Haram. However, Dr. Naik argues that this does not necessarily make masturbation Haram as the Hadith simply encourages young people to marry or fast to control their sexual desire.
+
+00:10:00
+In this section, Dr. Zakir Naik discusses the three groups of Islamic scholars' opinions on masturbation. The first group believes it is haram due to a Hadith from Bukhari, but the second group argues that there is no clear evidence in the Quran or Hadith prohibiting it. They believe that it is makrooh, meaning discouraged but not forbidden. The third group believes it is entirely permissible or falls under the category of buba, meaning optional or no restriction. Overall, the majority view classifies it as haram or makrooh, but some scholars lean towards permissibility under certain circumstances.
+
+00:15:00
+In this section, Dr Zakir Naik explains that while masturbation is not considered haram or sinful according to Islamic teachings, it is regarded as makrooh or discouraged due to certain factors. While medical science deems it as normal, excessive masturbation can lead to health and psychological issues. Masturbation associated with pornography or obscene images is also deemed haram. While the best way to avoid it is through marriage or fasting to reduce sexual urges, for those who cannot marry, fasting is recommended. The lack of evidence in the Quran or Hadith prohibiting masturbation leads Dr Zakir Naik to put it in the makru category.
+
+00:20:00
+In this section, Dr. Zakir Naik discusses the controversial topic of masturbation in Islam. He states that it is not a sin nor does it have any evidence in the Quran or Hadith, but it is considered Makrooh (discouraged) and should be avoided. Dr. Naik asserts that he is not giving permission to indulge in this act but suggests that if one has strong sexual urges which cannot be suppressed, then they can masturbate within limits and without excessive guilt. He advises not to watch pornography, avoid excessive acts of self-pleasure, and instead fast or marry as soon as possible. Dr. Naik also aims to clear up confusion amongst Muslims and alleviate guilt feelings caused by this issue.
+

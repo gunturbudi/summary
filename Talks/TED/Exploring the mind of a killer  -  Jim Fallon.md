@@ -1,0 +1,11 @@
+# Summary of Exploring the mind of a killer | Jim Fallon
+
+Neuroscientist Jim Fallon comes from a family with a history of murder that dates back to the 1600s. In order to explore the possibility of violence in his family members today, Fallon conducts PET scans, EEGs, and genetic analyses on everyone in his family. He found the damage in the orbital cortex and the interior part of the temporal lobe, due to a combination of genetics, epigenetic effects, brain damage, and the environment, could contribute to psychopathy. Fallon notes that the major violence gene is the MAO-A gene, which can cause the brain to become insensitive to serotonin, and with constant exposure to violence, generations of children can inherit these genes and become violent, creating a tinderbox effect.
+
+Detail Summary: 
+00:00:00
+In this section, neuroscientist Jim Fallon talks about his analysis of the brains of psychopathic killers and how he found that the damage in the orbital cortex, right above the eyes, and the interior part of the temporal lobe, due to a combination of genetics, epigenetic effects, brain damage and the environment, could contribute to psychopathy. The major violence gene is the MAO-A gene, which can cause the brain to become insensitive to serotonin, in turn causing violent behavior early in life when traumatic events occur. With constant exposure to violence, generations of children can inherit these genes and become violent, creating a tinderbox effect. Jim notes that his father's ancestors showed violent behavior traits as well, which could possibly be part of the reason he was interested in studying the brains of psychopathic killers.
+
+00:05:00
+In this section, Jim Fallon shares about his family history of murder, which dates all the way back to the 1600s. Despite his own father and uncles being conscientious objectors, Fallon discovered that several ancestors were notorious killers. In order to determine if the propensity for violence exists in his family members today, Fallon has started to conduct PET scans, EEGs, and genetic analyses on everyone in his family. Though there is still no conclusive evidence on where the bad news may pop up, the family must continue to be vigilant in tracking the possibility of violence through their genetic history.
+

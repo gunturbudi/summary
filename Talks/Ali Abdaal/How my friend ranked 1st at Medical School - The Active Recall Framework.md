@@ -1,0 +1,22 @@
+# Summary of How my friend ranked 1st at Medical School - The Active Recall Framework
+
+Source: https://youtube.com/watch?v=fDbxPVn02VU
+
+The video discusses the Active Recall Framework, which involves converting lecture notes into questions and repeatedly testing oneself through active recall-based revision. The speaker emphasizes the importance of this method, citing various studies, and promotes the use of the online learning platform, Brilliant. The speaker also discusses their own process for taking notes using the Active Recall Framework, stressing the importance of understanding the content rather than just memorizing facts. Furthermore, the speaker explains how his friend ranked 1st at Medical School using the Framework and emphasizes the importance of testing oneself to do well in exams.
+
+Detail Summary: 
+00:00:00
+In this section, Ali explains the study framework his friend used to consistently rank in the top three, and sometimes first, at one of the most competitive medical schools in the world, Cambridge University. Instead of writing notes, his friend wrote a ton of questions and went over them repeatedly during revision. He created Google Docs filled with questions designed from his lecture notes and textbooks for each subject. The idea was to test himself through active recall-based revision. Ali explains that active recall is the most efficient study technique based on evidence as testing oneself repeatedly is the best way to make anything stick in memory.
+
+00:05:00
+In this section, the video discusses the importance of active recall as a study method, citing various studies that have shown how actively trying to retrieve information leads to better performance on exams compared to simply rereading notes or making outlines. The video also promotes the use of Brilliant, an online learning platform that offers active learning through online courses and daily challenges focusing on fields such as computer science, physics, and math. The platform guides users through the concepts and encourages active recall through problem-solving challenges. The video also explains how the active recall framework works, where the focus is on writing questions for oneself instead of taking detailed notes during class and reading assigned materials. Despite the drawback of having to take the time to find information, the video emphasizes the benefits of this method in terms of increased efficiency and saving time for more essential pursuits.
+
+00:10:00
+In this section, the speaker discusses the Active Recall Framework, which is a method of studying that involves converting lecture notes into questions and color-coding them based on whether or not the student knows the answer. By doing this, the student is able to identify areas where they need to focus their studying efforts. The method involves multiple passes through the questions, with the goal of eventually being able to answer all of them correctly. The speaker notes that this is not a method that can be done once and forgotten, but must be repeated over time using spaced repetition to truly retain the knowledge. The speaker also shares their personal use of the method, using an app called Notion to organize their notes and questions.
+
+00:15:00
+In this section, the speaker discusses his own process for taking notes using the Active Recall Framework. He explains that he takes screen grabs of graphs and diagrams from lecture notes and textbooks and enters them into a note-taking app, such as Notion, to help him remember the information. He emphasizes the importance of understanding the content rather than just memorizing facts and presents evidence that learning is more effective and longer-lasting when it is effortful. He also stresses the importance of balance between compression and context when taking notes. Finally, he shares that this framework was inspired by a talk he gave in 2015 on how to study for exams.
+
+00:20:00
+In this section, the speaker explains how his friend ranked 1st at Medical School using the Active Recall Framework. The framework involves creating questions and answering them rather than writing notes, which is considered a waste of time. The friend spent two months before the exam creating questions for himself and answering them, which helped him understand and retain the information better. If he had started using this method from day one, it would have been even more efficient and he would have spent less time studying. The speaker emphasizes the importance of testing oneself to do well in exams.
+

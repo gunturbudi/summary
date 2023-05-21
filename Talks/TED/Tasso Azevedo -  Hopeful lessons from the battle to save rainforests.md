@@ -1,0 +1,17 @@
+# Summary of Tasso Azevedo: Hopeful lessons from the battle to save rainforests
+
+Tasso Azevedo, a Brazilian forest expert, discusses the importance of the Amazon forest in regulating the world's climate, the rapid deforestation of tropical forests, and the need to combat deforestation through a plan involving civil society, local governments, businesses, and local communities. He also highlights the progress made in reducing deforestation in Brazil over the past decade, the impact of climate change on the forest, and the need for collective effort to combat climate change. Azevedo expresses optimism that humanity can shift its course in environmental issues, citing progress made in combating deforestation in Brazil as an example.
+
+Detail Summary: 
+00:00:00
+In this section, Tasso Azevedo, a Brazilian forest expert, highlights the importance of the Amazon forest in regulating the world's climate by producing 20 billion tons of water evaporation daily, more than any other forest in the world. However, deforestation of tropical forests has increased rapidly, with the loss of the same amount of forest in the tropics in 100 years compared to the 2,000 years it took in the temperate regions. As the second-largest forest in the world, Brazil has 12% of all the world's forests, with the Amazon covering most of it. Although Brazil still has an 80% forest cover, it lost 15% in just 30 years, making Tasso Azevedo and his team join forces to combat deforestation through a plan with 144 actions in different areas, involving civil society, local governments, business, and local communities.
+
+00:05:00
+In this section, Tasso Azevedo discussed the progress Brazil made in reducing deforestation over the past decade, using the DETER system to track and act in real-time. Thanks to the system, 8.7 million hectares of forests were saved, equivalent to the size of Austria, and three billion tons of CO2 were avoided, marking the largest positive action to reduce greenhouse gas emissions. Azevedo also connected the reduction of deforestation to the growth of the economy, indicating that decreasing deforestation does not necessarily lead to an economic downturn. Nonetheless, he reiterated that deforestation is still happening at alarming rates, and the goal for the next step is to achieve zero-loss forest cover in Brazil by 2020.
+
+00:10:00
+In this section, Tasso Azevedo, a forest expert, explains the impact climate change has on the forest and how it is one of the earliest victims. Azevedo also explains the need to limit the average temperature of the planet to two degrees, which is possible for humans to survive. For that, we must limit our emissions of carbon dioxide to an average budget of 11 billion tons per year, but it stands at 50 billion tons today, which is still growing. With the population and economy projected to grow rapidly, efforts need to be made to reduce carbon emissions, and Azevedo suggests five things to do, including disconnecting development from carbon emissions and sharing responsibility between governments, businesses, and civil society.
+
+00:15:00
+In this section, Tasso Azevedo expresses optimism that humanity can shift its course in environmental issues, citing the progress made in combating deforestation in Brazil as an example. He believes that the fight against climate change is another challenge that can be tackled by collective effort and determination.
+

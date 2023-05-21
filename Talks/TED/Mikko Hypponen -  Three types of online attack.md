@@ -1,0 +1,11 @@
+# Summary of Mikko Hypponen: Three types of online attack
+
+In this video, Mikko Hypponen discusses the three main types of online attackers: those motivated by money, such as online criminals who use banking Trojans and keyloggers to steal funds; hacktivists who attack for protest reasons or to make a statement; and nation-states who attack to gain information or monitor their citizens. He uses the example of DigiNotar in the Netherlands to illustrate the consequences of attacks on internet security firms, highlighting the potential harm caused to dissidents in countries like Iran who rely on secure communication channels. Hypponen argues that privacy and freedom are at stake and that we need to consider their importance as a society over the next 50 years.
+
+Detail Summary: 
+00:00:00
+In this section, Mikko Hypponen discusses the three main attackers that pose a threat to our online security. Firstly, he highlights that online criminals are motivated by making money, using illegal means such as banking Trojans to siphon off funds online from bank accounts, and keyloggers to collect credit card information while online shopping. Secondly, hacktivists like Anonymous do it for the protest or to make a statement, motivated by opinions or for laughs. Lastly, nation-states use online attacks to gain information or track the activities of their citizens. He uses the example of DigiNotar in the Netherlands, which went bankrupt due to Chinese hackers being responsible for the breakdown of their security protocols.
+
+00:05:00
+In this section, Mikko Hypponen discusses the potential consequences of online attacks on internet security firms, using the example of the DigiNotar hack, which caused fatalities in Iran where dissidents use foreign services like Gmail for secure discussions away from the government's prying eyes. Hypponen highlights Western countries that provide totalitarian governments with tools and protocols to monitor the communications of their citizens. In addition, Western governments are using tools of interception to investigate their own citizens, such as Germany's State Trojan. He argues that privacy isn't up for discussion and that it shouldn't come down to the choice between privacy and security, but a question of freedom versus control that we have to worry about for the next 50 years.
+

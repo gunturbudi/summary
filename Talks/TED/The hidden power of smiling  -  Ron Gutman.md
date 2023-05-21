@@ -1,0 +1,11 @@
+# Summary of The hidden power of smiling | Ron Gutman
+
+Ron Gutman in his video discusses the power of smiling backed by scientific research. He reveals that babies are born smiling and that children have the ability to smile as many as 400 times per day, which is contagious making those around them smile frequently. Smiling stimulates our brain reward mechanism in a way that is unmatched by even chocolate, making one smile able to generate the same level of brain stimulation as up to 2,000 bars of chocolate. Additionally, smiling can help reduce stress hormones, increase mood-enhancing hormones, reduce overall blood pressure, and make individuals appear more likable, courteous, and competent, thus serving as a superpower that can help us and those around us live a longer, healthier, and happier life.
+
+Detail Summary: 
+00:00:00
+In this section, Ron Gutman explores the power of a smile backed up by scientific research. By measuring the smiles of individuals in pictures in yearbooks, researchers were able to predict how fulfilling and lasting a subject's marriage would be and how well they would score in standardized tests of well-being. Gutman reveals that babies are born smiling and that they continue to smile and use it as an expression of joy and satisfaction throughout their lives. Children are found to be the ones with the most amazing superpowers, having the ability to smile as many as 400 times per day, and smiling being contagious, making those around them smile more frequently. Additionally, the act of smiling itself makes people feel better, rather than being a response to feeling good.
+
+00:05:00
+In this section, it is discussed how smiling is found to stimulate our brain reward mechanism in a way that is unmatched by even chocolate, with one smile able to generate the same level of brain stimulation as up to 2,000 bars of chocolate. It was also found that smiling is as stimulating as receiving up to 16,000 pounds sterling in cash. Furthermore, smiling can help reduce the level of stress hormones, increase mood-enhancing hormones, reduce overall blood pressure, and make individuals appear more likable, courteous, and competent. Smiling is a superpower that can help us and those around us live a longer, healthier, and happier life.
+

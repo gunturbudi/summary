@@ -1,0 +1,14 @@
+# Summary of 3 Ways Your Money Can Fight Climate Change | Veronica Chau | TED
+
+Veronica Chau discusses the challenges of combatting climate change and the need for trillions of dollars to be invested in technologies that decarbonize the world. She suggests that capital, public policies, and demand are necessary to create conditions for banks to invest, particularly in areas like affordable housing. Chau encourages the use of blended finance models and emphasizes the role of governments in providing policies, programs, and permits to incentivize environmentally-conscious housing. She also suggests that individuals can fight climate change through personal financial decisions by demanding more environmentally conscious investment options and creating a demand for greener solutions.
+
+Detail Summary: 
+00:00:00
+In this section, Veronica Chau outlines the need for trillions of dollars to combat climate change and how it's not as simple as just investing money. She explains that banks and investors recognize the need for investment, but are facing challenges deploying real money into technologies that decarbonize the world. By focusing on the challenge of building affordable yet energy-efficient housing, Chau highlights the need for the right public policies, capital, and demand to create the conditions for banks to invest. She believes that there are simple moves individuals can make to help create these conditions, not just in housing but across all sectors.
+
+00:05:00
+In this section, Veronica Chau discusses the importance of blended finance models in areas like affordable housing, which allows governments to provide their finance in guarantees and concessional forms of lending to attract private-sector finance. Additionally, she emphasizes the role of governments in providing public policies, programs, and permits in order to pursue bold ambitions like net-zero targets and incentivize homeowners to move towards environmentally-conscious housing. Chau also suggests that institutional investors like insurance companies and pension plans can play a role in fighting climate change by mandating the integration of environmental and social considerations into their management of money.
+
+00:10:00
+In this section, Chau discusses the ways individuals can fight climate change through their personal financial decisions. She first suggests that individuals can demand more environmentally conscious investment options from governments and institutional investors, stating that these large investors have a responsibility to consider environmental and social impacts. Additionally, she encourages individuals to create a demand for greener solutions themselves, using examples such as asking about energy efficiency when buying or renting a home. She emphasizes the need for individual action, as money has the power to influence how long we can enjoy our planet.
+

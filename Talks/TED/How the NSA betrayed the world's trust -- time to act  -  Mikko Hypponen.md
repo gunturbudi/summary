@@ -1,0 +1,17 @@
+# Summary of How the NSA betrayed the world's trust -- time to act | Mikko Hypponen
+
+In this video, cybersecurity expert Mikko Hypponen discusses the indiscriminate and invasive nature of the NSA's spying program, which has breached security and jeopardizes privacy for all. He questions the unbalanced relationship between the United States and its allies and emphasizes the importance of privacy, arguing that everyone has personal information they would not want to share with others. Hypponen calls for countries to work together in building an open-source solution that ensures privacy, security, and freedom.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses how the Internet and mobile phones have become perfect tools for surveillance, which became evident through the revelations and leaks about Western intelligence agencies, primarily the US intelligence agencies. The NSA data center in Utah is a prime example of mass surveillance, with authorities being able to collect and store data on anyone using telecommunications and the internet for extended periods. While some forms of surveillance are necessary and acceptable, programs like PRISM simply involve blanket surveillance on innocent people, with four main arguments supporting it.
+
+00:05:00
+In this section, Mikko Hypponen discusses how the NSA betrayed the world's trust with their collection programs such as PRISM, XKeyscore, Cybertrans, DoubleArrow, and Skywriter. The intelligence agencies are out of control, and need to be brought back under control. Hypponen points out that intelligence agencies go to extreme measures, such as infiltrating standardization bodies and sabotaging encryption algorithms on purpose to get around encryption. Furthermore, the leaks reveal that the companies they have backdoor access to are denying this and may have not been cooperating with the US government but hacked by them. This all indicates a breach of security by intelligence agencies, including the elite hacker units such as TAO and NAC, and ultimately jeopardizes security for all.
+
+00:10:00
+In this section, cybersecurity expert Mikko Hypponen discusses the indiscriminate and invasive nature of the NSA’s spying program. Hypponen questions the unbalanced relationship between the United States and its allies, such as Sweden, which allows American companies to handle their data while having the legal right to intercept any traffic that passes through their national borders. Furthermore, Hypponen dismisses the notion that the NSA is solely dedicated to fighting terrorism because leaks have shown that they have spied on foreign leaders and organizations for their own benefit. Hypponen emphasizes the importance of privacy, arguing that those who claim to have nothing to hide are naïve, as everyone has personal information they would not want to share with others.
+
+00:15:00
+In this section, Mikko Hypponen emphasizes the importance of privacy and how the U.S. government's surveillance infringes upon this fundamental right. He explains how search engines are given more information than our families and highlights Dilma Rousseff's comments about how privacy is fundamental for freedom of expression and opinion and effective democracy. Instead of blaming Snowden for issues caused by U.S. cloud services' revelations, countries should work together in building an open-source solution that ensures privacy, security, and freedom. In doing so, small waves will become a tide that will lift all the boats up and above the surveillance state.
+

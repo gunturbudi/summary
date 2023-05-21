@@ -1,0 +1,22 @@
+# Summary of The Chinese Student Crisis
+
+Source: https://youtube.com/watch?v=cQWlnTyOSig
+
+"The Chinese Student Crisis" video highlights the challenges faced by Chinese international students in choosing a college in the US, including the problem of information asymmetry and misleading college rankings. It explores the impact of international students on university rankings, the flaws in the ranking system, and the unintended consequences of the ranking game. The video also discusses the possibility of the "university" model being in decline and potentially being replaced by mass online education.
+
+Detail Summary: 
+00:00:00
+In this section, the video explains how the Chinese international students face a challenge in choosing a college in the US due to information asymmetry. They look towards college rankings to make informed decisions, but these rankings are often inaccurate and misleading, which is just one symptom of the larger issue of deceit in today's higher education system. Meanwhile, in China, everything revolves around the Gaokao, a college entrance exam that determines one's future, career, and social class. The importance of the exam is such that Chinese students sacrifice their adolescence to excel in it. The rich and powerful still manage to find ways to succeed, and for middle and upper-class kids, studying overseas serves as an escape from the high academic pressure in China. The funding model for public universities depends on state and federal governments' taxes, making them vulnerable to budget cuts during crises, which has been a problem since the 2008 recession.
+
+00:05:00
+In this section, the video discusses how universities in the US capitalized on the growing demand for overseas degrees by Chinese students, which created an enormous under-tapped supply. The video also highlights the role of college rankings in exploiting the knowledge gap of these students and their families, and its impact on the admission policies of universities. Although rankings have no uniform criteria to evaluate different types of schools and often value metrics like the proportion of international students over academic quality, it is nevertheless a significant factor in attracting students who also contribute to boosting rankings.
+
+00:10:00
+In this section, the video discusses the impact of international students on university rankings and the flaws in the ranking system. International students often pay full tuition fees, which has a disproportionately large impact on university finances and ranking. The rankings themselves are flawed, relying on metrics such as reputation and citations that are not necessarily indicative of a good undergraduate experience. Rankings can also be manipulated through tactics such as offering financial incentives, and even free merchandise, to respondents in surveys. The unintended consequences of the ranking system has led to disproportionate funding to universities who play the ranking game, rather than providing a quality education to students.
+
+00:15:00
+In this section, the video highlights the issues caused by college rankings and their impact on international students, particularly Chinese students. The rankings business model is based on producing an annual round of drama and publicity, which ignores the fact that colleges cannot be reduced to a single number. The video notes that U.S. News, for instance, assigns schools below-average scores if they refuse to comply with their ranking methodology. The video further explores how international students are exploited by this system, and how this system was previously supported by the growth of Chinese students on U.S. campuses. However, national borders closing during the COVID-19 pandemic, coupled with an increasingly negative portrayal of other countries by the Chinese government, may lead to a permanent disruption of business, academic, and incentive structures.
+
+00:20:00
+In this section, the video discusses the possibility of the "university" model being in decline and potentially being replaced by mass online education. While some argue that anything can be learned online, schools have the advantage of offering accountability, structure, and guidance. However, with the current financial crisis in universities and the uncertainty of future revenue sources, no one knows exactly what the future holds for higher education. The video also briefly promotes a habit-forming and tracking app called Fabulous, which can help users build healthy habits and stick to them.
+

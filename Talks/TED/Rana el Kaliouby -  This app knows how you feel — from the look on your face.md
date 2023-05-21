@@ -1,0 +1,14 @@
+# Summary of Rana el Kaliouby: This app knows how you feel — from the look on your face
+
+Rana el Kaliouby discusses her mission to develop technologies that detect and respond to human emotions, using deep learning algorithms to read facial expressions and identify emotions. She demonstrates the technology live on an iPad and shares potential applications, including emotion-enabled glasses and emotion-tracking devices. Despite acknowledging potential risks, she believes emotionally intelligent technology can increase empathy and connection between people and urges everyone to be part of the conversation on how it is used. Bringing emotions into technology can make it more responsive and create a more humanizing experience, ultimately reimagining how we connect with machines and each other.
+
+Detail Summary: 
+00:00:00
+In this section, Rana el Kaliouby talks about how our emotions influence every aspect of our lives, how we've evolved to connect with each other emotively, and how our modern, digital experiences are lacking in emotional intelligence. She shares her mission to bring emotions back into our digital lives by developing technologies that can detect and respond to human emotions. Using deep learning algorithms, her team has developed software that can read facial expressions and identify emotions expressed as action units, such as a smile or a brow furrow. She demonstrates the technology on an iPad live with a volunteer and shares how her core emotion engine can be used on any mobile device.
+
+00:05:00
+In this section, Rana el Kaliouby demonstrates how her emotion-recognition algorithm can track and recognize various expressions, from subtle to more overt ones, using Cloe as an example. They have amassed over 12 billion emotion data points, which has led to interesting insights into gender, cultural, and age differences in emotional expression. Rana shares some of the potential applications of this technology, including emotion-enabled glasses for people with visual impairments and those on the autism spectrum, as well as emotion-tracking devices for education and daily life. She acknowledges potential risks and abuse but hopes that this technology will lead to greater empathy and connection between people.
+
+00:10:00
+In this section, Rana el Kaliouby emphasizes that the benefits of emotionally intelligent technology outweigh the potential for misuse. She invites everyone to be part of the conversation and have a voice in how this technology is used. As our lives become more digital, she believes that trying to limit our usage of devices to reclaim our emotions is a losing battle. Instead, she proposes bringing emotions into our technology to make it more responsive and humanizing it to bring people together. She sees this as an opportunity to reimagine how we connect with machines and, ultimately, how we connect with each other as human beings.
+

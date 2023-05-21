@@ -1,0 +1,11 @@
+# Summary of A friendly, autonomous robot that delivers your food | Ali Kashani
+
+In a video about a friendly, autonomous robot that delivers food, Ali Kashani discusses the need for a solution to the problems of food delivery in cities. He proposes the use of autonomous robots that can navigate sidewalks and walking paths, which can communicate effectively with people using visual and aural cues. Kashani also addresses the issues related to confusion caused by delivery robots at intersections by creating a universally understandable language of movement. Further, he highlights how delivery robots can help tackle food waste and insecurity, carry emergency medications, and aid during pandemics. Kashani believes that with the AI implementation and new sensors, technology can learn how to navigate the three-dimensional world and lead to new possibilities.
+
+Detail Summary: 
+00:00:00
+In this section, Ali Kashani from Postmates discusses the problem of food delivery and its effects on cities. He explains that delivering 20 million restaurant orders per day in America, with over half being within walking distance, presents problems for cities as we move small items in large cars resulting in pollution and car dependency. The solution that Kashani and his team have come up with is the use of autonomous robots that can navigate sidewalks and walking paths. In order to make these robots acceptable to, and understandable by, humans, their team spent considerable time creating a “universal language” incorporating visual and aural cues that help the robots communicate with people.
+
+00:05:00
+In this section, Ali Kashani explains how the confusion delivery robots caused at intersections led his team to create a universal language of movement for robots. The robots would signal drivers and pedestrians before they start crossing, and would yield to people in wheelchairs by pointing themselves away from the sidewalk. Kashani also talks about how delivery robots can be part of the solution in tackling food waste and food insecurity, carrying emergency medications, and during pandemic situations. Kashani believes that new sensors and AI implementation can teach technology how to navigate the three-dimensional world without human help, leading to a new era where objects can move freely.
+

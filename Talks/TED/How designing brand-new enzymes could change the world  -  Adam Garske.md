@@ -1,0 +1,14 @@
+# Summary of How designing brand-new enzymes could change the world | Adam Garske
+
+Adam Garske discusses the process of designing custom enzymes and their importance in everyday life, such as the making of cheese and breaking down stains on clothes. By playing with amino acids, researchers can generate and improve thousands of enzymes through directed evolution, leading to more efficient and sustainable solutions for environmental challenges. Enzyme design also offers promising avenues for addressing human health concerns like PKU and tackling major challenges like plastic waste and greenhouse gases. Harnessing the power of enzymes shows great potential for driving progress in various fields.
+
+Detail Summary: 
+00:00:00
+In this section, Adam Garske discusses the importance of enzymes in everyday life, from the cheese-making process to breaking down stains on clothes. Enzymes are proteins that act as catalysts to speed up chemical reactions, and can be made in microbes by inserting custom DNA sequences. Garske describes the process of designing custom enzymes for specific applications using directed evolution, and gives an example of designing an enzyme to break down stains in cold water laundry. By understanding enzymes at a molecular level, we can create more efficient and sustainable solutions to environmental challenges.
+
+00:05:00
+In this section, we learn how designing new enzymes could change the world. Enzymes naturally found in organisms may not have evolved to clean dirty laundry in cold water but starting with existing enzymes can provide a place to begin improving. By playing with amino acids and rearranging them, researchers are able to generate thousands of enzymes which can be tested and improved upon in little plates. By repeating this process, researchers are able to create new enzymes capable of doing what they set out to accomplish such as enabling the washing of clothes in cold water with one such enzyme available in many supermarkets today. Researchers are excited by the potential for enzyme design in human health and the environment such as PKU, an enzyme deficiency common in infants that can cause permanent intellectual disabilities.
+
+00:10:00
+In this section, the speaker discusses how new enzymes can help address environmental problems such as plastic waste and greenhouse gases. Recently, plastic-degrading enzymes were discovered, and efforts are underway to design improved versions of these enzymes. Additionally, enzymes are being optimized to create non-petroleum-derived biodegradable plastics, and to capture greenhouse gases. The speaker demonstrates the positive impact of enzymes in the production of chymosin for cheese making and in laundry detergents. The ability to harness the power of enzymes offers a promising avenue for tackling major challenges and driving progress in various fields.
+

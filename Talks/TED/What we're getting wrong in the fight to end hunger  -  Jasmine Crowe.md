@@ -1,0 +1,14 @@
+# Summary of What we're getting wrong in the fight to end hunger | Jasmine Crowe
+
+Jasmine Crowe discusses the issue of hunger and food insecurity in America in her TED Talk, arguing that traditional methods often create dependency cycles and fail to provide well-balanced meals. She shares her success in using technology to connect businesses with surplus food to those in need and her innovative approaches, including pop-up grocery stores and food waste grocery stores. Crowe highlights the success of France, Italy, and Denmark in passing anti-food-waste laws and urges individuals to change their attitudes towards hunger and be part of the solution. She also emphasizes the importance of supporting social entrepreneurs in this fight and calls for changes in laws and policies.
+
+Detail Summary: 
+00:00:00
+In this section, a volunteer at a local food pantry was surprised to find out that they were not giving real meals to the families in need, but essentially only packaged food which contained a lot of junk food. The speaker argues that this approach to hunger is wrong because it creates a dependency cycle and the food given is often not well-balanced. Moreover, despite all the charity work, millions of people are still food insecure. The US wastes over 80 billion pounds of food, more than ever before, while nearly 40 million people in the US experience hunger every year, including more than 11 million children that go to bed hungry every night.
+
+00:05:00
+In this section, Jasmine Crowe discusses her success in using technology to solve food insecurity with her app that connects businesses with surplus food to nonprofits and people in need. Crowe's innovative approaches include pop-up grocery stores in food deserts and food waste grocery stores that sell recovered excess food at discounted prices. Despite the millions of dollars being donated to fight food insecurity, Crowe argues that we have not yet solved this problem and that we must change the traditional ways of doing so. She points to the success of France, Italy, and Denmark in passing anti-food-waste laws and creating innovative grocery stores while urging individuals to change their attitudes towards hunger and be part of the solution.
+
+00:10:00
+In this section, Jasmine Crowe explains that while social entrepreneurs have the potential to make a significant difference in tackling issues such as hunger, they don't receive the same support as national hunger-fighting organizations and food banks. She discusses the importance of connecting businesses with surplus food to people in need, and the impact that access to food can have on improving health outcomes and reducing food waste. Crowe encourages changing laws and policies, shifting our attitudes towards food drives and food banks, and working towards solving hunger to improve the lives of millions of people.
+

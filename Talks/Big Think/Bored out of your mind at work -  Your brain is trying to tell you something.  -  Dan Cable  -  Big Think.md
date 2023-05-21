@@ -1,0 +1,11 @@
+# Summary of Bored out of your mind at work? Your brain is trying to tell you something. | Dan Cable | Big Think
+
+Dan Cable discusses the "seeking system" in the brain, which pushes individuals to explore and be curious. Disengagement from boring work may not necessarily be a flaw, but rather a feature that comes from the evolution of the seeking system, which was developed to keep us continually learning. The shift towards efficiency and the removal of meaning from work began in the 1850s, leading to the belief that work is just something people tolerate rather than enjoy. Restrictive job roles, where employees are given standard tasks, can lead to boredom and lack of engagement. Cable argues that this is more about company culture and expectations than the industry, and a more open and inclusive culture can lead to employee motivation and contribute to a company's success.
+
+Detail Summary: 
+00:00:00
+In this section, Dan Cable discusses the concept of the "seeking system" in the brain, which is responsible for pushing individuals to explore new boundaries and be curious. He argues that the disengagement from boring work may not necessarily be a flaw, as 70% of people in recent polls are not engaged in their work. Cable believes that this disengagement is a feature that comes from the evolution of the seeking system, which was developed to keep us continually learning. He also suggests that the shift towards efficiency and the removal of meaning from work began around the 1850s, which has led to the pervasiveness of the belief that work is just something people have to tolerate rather than enjoy.
+
+00:05:00
+In this section, Dan Cable discusses the issue of restrictive job roles, where employees are often given a set of standard tasks to complete and are unable to contribute their own ideas towards improving the company. This can lead to boredom and a lack of engagement among employees, which ultimately hinders a company's competitiveness. Cable believes that this issue is more about company culture and the expectations set for employees, rather than the industry they work in. A more open and inclusive culture could lead to employees feeling more engaged and motivated at work, ultimately contributing towards a company's success.
+

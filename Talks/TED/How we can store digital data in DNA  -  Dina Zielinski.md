@@ -1,0 +1,14 @@
+# Summary of How we can store digital data in DNA | Dina Zielinski
+
+The video explores the challenges faced in digital data storage and why DNA could be an effective solution. DNA is the oldest storage device in nature and is capable of holding vast amounts of information, is durable, doesn't require electricity, and is easily copied. To utilize DNA for storage, binary digits need to be converted into genetic code, much like an inkjet printer. The speaker also highlights the challenges of DNA storage, which can be minimized by copying the DNA. Long-term storage is possible through the "Memory of the World" program by UNESCO, ensuring preservation of human heritage. Even though it is currently more time-consuming, DNA provides a safer and more long-term solution than other digital storage methods.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the importance and challenges of digital storage, highlighting the fact that contemporary society generates more data than ever before. Although digital storage devices have evolved, they tend to become obsolete and eventually become unusable; this means that all data on the devices become inaccessible. To tackle this challenge, the speaker suggests that DNA, being nature's oldest storage device, could be a viable option. DNA can hold vast amounts of information that are present in each cell of the human body, and it has the advantage of withstanding changes in societal developments and natural disasters. Therefore, the speaker believes that our data could be stored in DNA.
+
+00:05:00
+In this section, the speaker discusses the advantages of using DNA as a method for data storage. DNA provides a durable storage format that does not require electricity and can be easily recovered from ancient human samples such as Ötzi the Iceman, offering a superior recovery rate than any single man-made device. DNA storage can also be easily copied without errors, and there is always the ability to read DNA. To store data on DNA, it must first be converted from binary digits to A's, T's, C's, and G's, which can be written onto the DNA much like an inkjet printer. The speaker also highlights the challenges associated with DNA storage such as sequencing errors, which can be overcome by copying the DNA, minimizing data loss.
+
+00:10:00
+In this section, the speaker discusses how DNA can be used for long-term storage of data through the "Memory of the World" program by UNESCO. As it is difficult to determine what will be important for future generations, storing everything in DNA can ensure preservation of human heritage. While storing data on DNA is currently more time-consuming than on a hard drive, it provides a safer and more long-term solution. Additionally, DNA will never become obsolete since it is a part of human nature to archive the world around us, and as long as we're around, DNA is also around and can always be sequenced to read data.
+

@@ -1,0 +1,14 @@
+# Summary of The genius behind some of the world's most famous buildings | Renzo Piano
+
+Renzo Piano, an architect, talks about the art of architecture, which he believes is driven by necessity and real-life circumstances, and requires architects to possess multiple skills. Piano emphasizes that architecture is an adventure expressed through societal and community changes, which can be challenging and rewarding. He highlights the importance of creating cultural buildings that spark visitor curiosity while not intimidating them, showcasing examples of buildings designed to capture and reflect changing skies, incorporate silence and forest and inspired by pure beauty. Piano also shares his belief in the power of beauty to change people one at a time and make cities better places to live.
+
+Detail Summary: 
+00:00:00
+In this section, architect Renzo Piano reflects on the nature of architecture as an art form that is at the forefront of art and science, one that is driven by forces of necessity and real-life. He adds that it requires architects to possess multiple skills, often switching between being a poet, humanist, and builder. Piano also emphasizes that architecture is an adventure, one which is expressed through changes within societies and communities, making it both challenging and rewarding. Finally, he showcases examples of his past work and collaboration with other architects and the sense of pride, sense of cooperation, and adventure that came with working together.
+
+00:05:00
+In this section, Renzo Piano explains the importance of creating cultural buildings that are not intimidating and instead spark curiosity in visitors, starting with a piazza that serves as the beginning of urban life. He showcases various cultural buildings, including a concert hall in Rome, a Platinum LEED building in San Francisco that features a living roof, the Niarchos Foundation in Athens that captures the sun's energy and a Platinum LEED building in New York. Renzo Piano also emphasizes that architecture is not just about fulfilling needs and necessities, but also fulfilling desires and dreams, and he highlights the Shard of Glass in London as an example of how a building's facets can reflect the changing sky of the city and have a soul of their own.
+
+00:10:00
+In this section, Renzo Piano shares some of his greatest architectural achievements, including The New York Times building which plays with transparency, the Magic Lantern in Japan which is designed to incorporate the silence and the forest, and the Jean-Marie Tjibaou Center, which is inspired by pure beauty and the idea of the visible and the invisible joining as one. Renzo believes that beauty is not a frivolous idea but one that can change people and make cities better places to live, which in turn creates better citizens. He believes that beauty will save the world by changing people one at a time.
+

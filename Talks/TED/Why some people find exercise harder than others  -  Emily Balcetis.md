@@ -1,0 +1,14 @@
+# Summary of Why some people find exercise harder than others | Emily Balcetis
+
+Social psychologist Emily Balcetis discusses perception and how it affects our perception of exercise difficulty. Her research suggests that physical fitness, motivation to exercise, and environmental perception can all contribute to differences in exercise perception. Balcetis conducted an experiment in which participants wore extra weight and were asked to walk to the finish line while either looking around or focusing on the finish line. Those who focused on the finish line found the exercise required 17% less exertion and felt easier, suggesting that the "keep your eyes on the prize" strategy can help promote a healthy lifestyle.
+
+Detail Summary: 
+00:00:00
+In this section, Emily Balcetis begins by discussing the subjectivity of perception, stating that what we see is filtered through our own mind's eye, and offering examples of how this can affect our vision, such as dieters perceiving apples as larger than non-dieters. She also refers to her research which found that people's political beliefs affected their perception of Barack Obama's appearance during his first presidential campaign, indicating that perception is a subjective experience. Balcetis, a social psychologist, is interested in understanding why people perceive things differently, particularly when it comes to health and fitness, and her research team set out to investigate why some people find exercise harder than others.
+
+00:05:00
+In this section, the speaker discusses how the perception of exercise difficulty can vary from person to person. She explains how the minds of some people perceive exercise to be easier than others based on their physical state, motivation to exercise, and environmental perception. The studies she conducted show that people who are less physically fit perceive distances to be greater than those who are physically fit, and people with a motivation to exercise perceive the distance as shorter. Additionally, the study suggests that people who use the "Keep your eyes on the prize" strategy tend to perceive the distance to be 30 percent closer, making the exercise seem easier.
+
+00:10:00
+In this section of the video transcript, the speaker conducted an exercise in which participants were asked to walk to the finish line while wearing extra weight, and while looking towards the finish line as opposed to looking around, a strategy that costs nothing and is easy for people to use, they found it required 17% less exertion for them to do the exercise than those who looked around naturally. This made the exercise look and feel easier even when people were working harder because they were moving faster. The speaker suggested that keeping your eyes on the prize might be one additional strategy that people can use to help promote a healthy lifestyle.
+

@@ -1,0 +1,14 @@
+# Summary of How racism harms pregnant women -- and what can help | Miriam Zoila Pérez
+
+Miriam Zoila Pérez discusses the impact of chronic stress on pregnant women's health and how racism exacerbates this issue, resulting in higher rates of health issues during pregnancy and childbirth for African-American and Native women in comparison to white women. She introduces "The JJ Way," a model created by midwife Jennie Joseph that provides accessible and supportive prenatal care for women of color, which has been successful in reducing complications during pregnancy and childbirth. Pérez emphasizes that while racism cannot be eradicated overnight, providing unconditional support during pregnancy can shift the impact of racism for generations to come.
+
+Detail Summary: 
+00:00:00
+In this section, Miriam Zoila Pérez discusses the relationship between chronic stress and illness, and how stress during pregnancy can cause health issues for both the parent and child. She explains that people who experience discrimination are more likely to have poor health, and African-American and Native women are more likely to have health issues during pregnancy and childbirth compared to white women. Pérez's personal experience as a doula has allowed her to see how race and class impact the experiences of pregnant women.
+
+00:05:00
+In this section, the speaker discusses how racism is a key factor in the high mortality rates for pregnant women and babies, with middle-class black women still having worse outcomes than their white counterparts. Even access to recommended prenatal care is not enough to prevent these high rates. As a solution, the speaker introduces "The JJ Way," created by midwife Jennie Joseph in Florida, which focuses on accessible, respectful, and supportive prenatal care for women of color. Joseph's approach emphasizes a team effort between medical assistants and patients, treating patients as individuals, and providing support throughout the pregnancy. This approach provides a crucial buffer to the stress of racism and discrimination, leading to healthy, full-term babies.
+
+00:10:00
+In this section, it is discussed how The JJ Way, a model created by a midwife named Jennie Joseph, has been successful in reducing complications during pregnancy and childbirth for black women. The model focuses on providing support, information, and care to clients in order to eliminate problems such as premature birth, low birth weight babies, and maternal mortality. The beauty of the model is that it can be implemented in any healthcare setting and has the potential to create a buffer to the daily stresses that people of color experience. It is noted that while racism cannot be eradicated overnight, providing unconditional support during pregnancy can shift the impact of racism for generations to come.
+

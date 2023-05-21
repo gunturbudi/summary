@@ -1,0 +1,11 @@
+# Summary of Why governments should prioritize well-being | Nicola Sturgeon
+
+Nicola Sturgeon argues that governments should prioritize well-being instead of relying solely on GDP as a measure of a country's success. Scotland's Wellbeing Economy Governments group focuses on the collective well-being of the population rather than just economic growth, promoting the idea that economic policy should aim to promote happiness and health alongside financial success. Sturgeon believes that promoting a vision of society with well-being at its heart should be the founding principle for a group of countries focused on promoting well-being.
+
+Detail Summary: 
+00:00:00
+In this section, Nicola Sturgeon argues against the exclusive use of gross domestic product (GDP) as a measure of a country's success, stating that it fails to address important social, environmental, and economic issues that affect the well-being of nations. She adds that GDP only measures economic output and does not provide insight into whether work is meaningful or fulfilling, nor does it value unpaid care or address issues such as climate change and inequality. Sturgeon then discusses Scotland's initiative, the Wellbeing Economy Governments group, which focuses on the collective well-being of the population rather than just economic growth, asserting that the goal of economic policy should be to promote happiness and health alongside financial success.
+
+00:05:00
+In this section, Nicola Sturgeon discusses how governments should prioritize well-being over economic competitiveness. She explains that her country, Scotland, started this journey in 2007 with the National Performance Framework which looks at indicators that are fundamental to a healthy and happy society such as income inequality, access to green spaces, and access to housing. Sturgeon gives equal importance to tackling inequality as well as economic competitiveness in their economic strategy. She highlights the significant work done by Iceland and New Zealand on policies fundamental to a healthy economy and happy society. Sturgeon believes that promoting a vision of society with well-being at its heart should be the founding principle for a group of countries focused on promoting well-being. She is determined to lead Scotland in building a fairer, happier world.
+

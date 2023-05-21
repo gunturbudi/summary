@@ -1,0 +1,25 @@
+# Summary of Lessons in Fiqh 18
+
+Source: https://youtube.com/watch?v=TG9J_UAlD8A
+
+In "Lessons in Fiqh 18," the speaker discusses various topics such as the marriages of the Prophet Muhammad, adoption, and the correct way to perform the total bath after sexual intercourse. It is explained that the Prophet Muhammad was loyal to his first wife, Khadijah, and married based on factors such as piety and the needs of the women involved. The speaker also clarifies that adoption is not permissible in Islam, but taking care of children is a good deed. When performing the total bath after sexual intercourse, the entire body must be covered with water, and it is not necessary to use soap or shampoo. It is also emphasized the importance of being specific with the terminology and rules of Sharia.
+
+Detail Summary: 
+00:00:00
+In this section of the video, the speaker continues studying the chapter that concerns the obligatory bath that one must take before or after certain actions or forms of worship. The hadith narrates how the Prophet Muhammad would take the bath after sexual intercourse, beginning by washing his hands and then pouring water over his left hand from his right before washing his sexual organs. The speaker clarifies that the Prophet's practice of polygamy was the Sunnah of messengers of Allah and not a must or preferred to all individuals, but rather, it depended on their financial and physical state. The Prophet's marriage to more than four wives is an exceptional case and not a negative reflection on him, as there are unfair claims that he was a womanizer. The speaker highlights that the Prophet had only one wife until he was 50 years old, which counters the claim that he was a woman's man.
+
+00:05:00
+In this section, the speaker talks about the marriages of the Prophet Muhammad PBUH. Despite the fact that most of his marriages involved widows or divorcees in need, he was loyal to his first wife, Khadijah, and did not marry anyone else during her lifetime. Additionally, most of his other marriages were not to virgins, which shows that he was not a man who valued women based on their "freshness" or desirability. Rather, he married based on other factors such as their piety, their family connections, and the needs of the women involved. For example, the Prophet PBUH married Hafsah bint Umar because her husband had died and Omar had asked his friends and companions to consider marrying her.
+
+00:10:00
+In this section of "Lessons in Fiqh 18," it is explained that adoption is not permissible in Islam, but taking a child into custody, feeding, teaching, and taking care of them is a splendid act. In addition, the wife of the Prophet, Zeynab, was initially married to his adopted son-in-law, but they separated and Allah ordained that the Prophet should marry her to demonstrate that adoption is no longer acceptable in Islam. The wives of the Prophet conveyed private knowledge that could not have been reported by male companions, and this is why YCJA and my Munna report how the Prophet performed acts like washing, eating, drinking, and performing ocean.
+
+00:15:00
+In this section, the speaker discusses the two ways of performing the total bath after sexual intercourse, one of which involves dipping oneself into a body of water and the other involving standing under a shower and washing oneself. Using soap or shampoo is not a prerequisite, and as long as the entire body is covered with water, it is considered enough. However, it is not recommended to perform the total bath in stagnant water, and in the case of swimming pools, the size of the pool determines its validity. The water used for ablution may not change color, taste, or smell, but in case the water is yellow, it is still able to perform ablution.
+
+00:20:00
+In this section, the video discusses the importance of being specific and careful with the terminology and rules of Sharia. It explains that if any form of water changes its color, taste or odor, it is unusable unless it was changed by an ijazah. However, swimming pools, even with urine, are still considered civil water unless the water is altered by an ijazah. The video also discusses the process of performing muscle, which includes washing the hands and private areas and striking the soil with hands to remove filth instead of using soap. The process follows with performing ablution, and there are two versions of it- one that involves the washing of the feet while the other version requires it to be delayed.
+
+00:25:00
+In this section, the speaker discusses the importance of fully washing one's body when performing the obligation, the correct way to do so and how to dry off after. The Prophet SAW rubbed the skull of his head to ensure water reached the roots of his hair, then poured water over his body ensuring it reached every place. It is also highlighted that the Prophet did not use a towel to dry himself, although scholars debate whether this was due to preference, or whether the Sunnah should be followed. It is concluded that it is up to the individual to follow the Sunnah, and to choose whether to dry themselves with a towel or not.
+

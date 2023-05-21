@@ -1,0 +1,17 @@
+# Summary of The Case for Radically Human Buildings | Thomas Heatherwick | TED
+
+In his TED talk, Thomas Heatherwick discusses how modern buildings lack character and emotion, causing harm to our well-being and the environment. He acknowledges the challenges of creating "radically human buildings" due to cost, regulations, and the status quo but believes that emotion should be the crucial function in building design. Heatherwick shares examples of his own studio's work and other architects who are trying to address this issue. He presents three projects that aim to humanize buildings, including a learning hub, a non-clinical cancer center, and a park-art district connection project. Heatherwick proposes a shift towards creating adaptable, adjustable, and long-lasting buildings that consider their impact on the environment and society.
+
+Detail Summary: 
+00:00:00
+In this section, the speaker discusses the epidemic of boring and characterless buildings that surround us in our towns and cites, causing harm to our mental, physical and societal health. The function of emotion is missing in these buildings, meaning emotions like connection and inspiration are not invoked when we look at them. The construction industry is responsible for 38 percent of greenhouse gas emissions globally, with one billion square feet of buildings being destroyed and rebuilt in the US alone each year. When people do not love buildings, they are more likely to demolish them, and this is not being connected to the fact that it's expensive to build them in the first place.
+
+00:05:00
+In this section, the speaker acknowledges the challenges of creating radically human buildings due to the pressures of cost, time, politics, regulations, and the status quo. However, he believes that the crucial function of emotion has been forgotten, and acknowledges individuals such as Sou Fujimoto, Francis Kéré, Lina Ghotmeh Architecture, and ACME Studio who are trying to address this. He also shares examples of his own studio's work, such as the transformation of a century-old grain silo in Cape Town into Africa's first major institution for contemporary African artists and the creation of a new kind of tropical architecture for a university building in Singapore that promotes interaction and natural daylight.
+
+00:10:00
+In this section, Heatherwick talks about three projects that aim to "humanize" buildings. The first project is a learning hub, designed to be open 24 hours and welcomes students to work and connect any time of the day. The second project was to build a non-clinical cancer center where patients could feel vulnerable, cry, and come together as a community. The third project aimed to connect a park and an art district into one building project. It has a thousand columns, and each one has a mountain tree on top, nourished with moisture, drainage, and lightings, and has hundreds of outdoor terraces. The project is called "A Thousand Trees," and it was designed so that columns connected with the park and the district art, and it has necessary complexity to create human engagement with its visitors.
+
+00:15:00
+In this section, Thomas Heatherwick makes a case for creating "radically human buildings" that are adaptable, adjustable, and repaired, rather than constantly knocking down and rebuilding. He proposes a shift away from constructing 40-year buildings to constructing buildings that can last 1,000 years, inspiring people to build for the long-term and consider the impact their buildings have on the environment and society.
+

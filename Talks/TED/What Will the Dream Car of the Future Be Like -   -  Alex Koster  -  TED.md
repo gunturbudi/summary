@@ -1,0 +1,14 @@
+# Summary of What Will the Dream Car of the Future Be Like? | Alex Koster | TED
+
+Alex Koster discusses the emergence of the "software dream car" as software takes over the car industry, and his team's collaboration with car brands to create a futuristic in-car experience. The software dream car will showcase AI driving, augmented and virtual reality, and the ability to customize both interior and exterior experiences. The vehicle will have computing power much faster than any other device and be able to detect and rescue children left in hot vehicles. However, automotive companies will need to innovate and retrain their workforce to bring the car to the market. Koster urges the audience to view this technological advancement as an opportunity to shape the largest real-life experiment of AI and human interaction to benefit humanity.
+
+Detail Summary: 
+00:00:00
+In this section, Alex Koster discusses the three major technology trends that are affecting the car industry: the shift from fossil energy to clean energy, the shift from mechanical to software, and adding AI to cars. Koster believes that as software takes over the industry, the emergence of the "software dream car" will occur. Koster's team collaborated with iconic car brands to think through the future of the software dream car, which would feature an AI driver and be shaped by augmented and virtual reality to create a futuristic in-car experience.
+
+00:05:00
+In this section, the speaker discusses the features of the software dream car. Drivers will be able to view overlay pictures of information and entertainment, blurring the lines between virtual and physical realities. The computing power of the vehicle will be ten times faster than any other device. The software dream car will have AI driving and the machine will work in harmony with the human, providing a smooth and immediate ride. Users can customize both the interior and exterior experience of the vehicle. Although the technology is ready for the software dream car, automotive companies will need to innovate and retrain their workforce to bring the car to the market. The speaker also notes that the software dream car will likely be available to only the rich initially, and it will upend the lives of many people in mechanical jobs.
+
+00:10:00
+In this section, the speaker describes two key features of the software dream car of the future: the ability to detect and rescue children left in hot vehicles, and the potential for drivers to customize their driving experience both digitally and physically. The speaker urges the audience to view this technological advancement as an opportunity rather than a threat, and to shape it in a way that benefits humanity. The software dream car, according to the speaker, is essentially a blank canvas for the largest real-life experiment of AI and human interaction, and he encourages everyone to embrace this exciting future.
+

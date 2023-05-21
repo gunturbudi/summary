@@ -1,0 +1,17 @@
+# Summary of 5 Best Things To Do On #LaylatulQadr | Khutbah by Dr. Omar Suleiman
+
+Dr. Omar Suleiman outlines five key things to do during the last 10 nights of Ramadan, with a specific focus on Laylatul Qadr. These include being cautious of indulging in sinful acts at Maghrib, praying Isha and Fajr in congregation, praying qiyam with an imam until the end of their qiyam to count as the entire night of prayer, reading Surah Ikhlas, and giving sadaqah and helping others. He emphasizes the importance of diversifying good deeds and avoiding distractions during this precious time, and urges Muslims to focus on emulating the Prophet and attaining a heightened level of excellence as one of Allah's most pleasing servants.
+
+Detail Summary: 
+00:00:00
+In this section of the video, Dr. Omar Suleiman explains the five things that people should keep in mind during the last 10 nights of Ramadan, with a special emphasis on Laylatul Qadr. Firstly, people should remember that the night starts at Maghrib and not Isha, which means they need to be cautious of indulging in actions that are not pleasing to Allah at the time of breaking the fast. Secondly, it is important to pray Isha and Fajr in congregation within Jamaa, whether in a mosque or at home. Thirdly, whoever prays Qiyam with an Imam until he finishes will have the entire night counted as prayer. The fourth point is to read Surah Ikhlas, which is equal in reward to reciting one-third of the Quran, and lastly, people should give Sadaqah and help others during these sacred nights to increase their own rewards further.
+
+00:05:00
+In this section, Dr. Omar Suleiman explains that praying with an imam for an established prayer from the beginning of their qiyam until the end of their qiyam counts as the entire night of prayer. He also recommends keeping oneself busy in dura and short duas, even when moving around, as it is said to be the most beloved supplication to Allah. Finally, he emphasizes the importance of diversifying good deeds and assigning a share of one's salah to one's home to prevent it from becoming a grave. Each Muslim has something to give life to every part of the night, and all of the good deeds preferred in Ramadan are even more preferred in the last ten nights of Ramadan.
+
+00:10:00
+In this section of the video, Dr. Omar Suleiman discusses the importance of generosity and charity during the last 10 nights of Ramadan, as this is the best time to emulate the Prophet and the most honored time of the month. He highlights the connection between dua and sadaqa (charity) as the two things that affect one's divine decree. He urges Muslims to diversify their deeds and follow the salaf's examples of exerting themselves in worship during these nights. Additionally, he advises Muslims to cut off all distractions during these nights and aspire to complete ertikaf to avoid any distractions during this precious time. He reminds people not to be like the two companions who were arguing, causing Allah to lift Laylatul Qadr from them.
+
+00:15:00
+In this section, Dr. Omar Suleiman reminds viewers of the importance of not committing any sinful acts during Laylatul Qadr and asks Allah to protect them from doing so. He states that the goal during this time should be to connect with Allah and perform deeds that will bring a lifetime of good deeds and consciousness of Allah, leading to a heightened level of excellence and becoming one of his most pleasing servants.
+

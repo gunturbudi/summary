@@ -1,0 +1,11 @@
+# Summary of How AI can enhance our memory, work and social lives | Tom Gruber
+
+Tom Gruber discusses Humanistic AI and the various ways in which AI can enhance our lives, such as Siri being an intelligent assistant for people with disabilities, pathologists collaborating with AI classifiers to diagnose cancer, and engineers using AI to generate thousands of designs. Gruber also talks about cognitive enhancement through AI and the potential for having a computer-level memory about our own lives, which could help us make connections and form ideas. He believes that personal memory enhancement with AI is inevitable and could greatly benefit those suffering from Alzheimer's and dementia. Gruber emphasizes the importance of choosing to collaborate with AI rather than compete with it.
+
+Detail Summary: 
+00:00:00
+In this section, Tom Gruber explains the concept of Humanistic AI and shows several examples of how AI has enhanced life experiences. One example is how Siri was designed as an intelligent assistant that augments people, including those with disabilities, to use mobile computing easily. Another life-changing example of AI is pathologists collaborating with AI classifiers to diagnose cancer with superhuman performance. When combining the ability of the human and machine, accuracy went up by 99.5%, eliminating 85% of the human pathologist's errors. Lastly, AI can turbocharge performance, especially in design. Engineers can give AI tools to generate thousands of designs, and the engineer's job is to pick the design that best meets the goals using human judgment and expertise.
+
+00:05:00
+In this section, Tom Gruber talks about the idea of cognitive enhancement through AI. He cites the flawed nature of human memory and poses the question: what if we could have a computer-level memory about our own lives? The AI could help us retrieve or analyze any interaction we had with people over time and, from that comprehensive data, make connections or form ideas. Gruber believes that the personal memory enhancement with AI is inevitable, and while it could be a more improved mental gain for the majority, it could mean a life of dignity and connection for millions who suffer from Alzheimer's and dementia. He reminds the audience that we have a choice in how we use AI technology – to compete with us or to collaborate with us.
+

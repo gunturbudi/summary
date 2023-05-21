@@ -1,0 +1,14 @@
+# Summary of The paradox of efficiency | Edward Tenner
+
+Edward Tenner discusses the paradox of efficiency, using examples such as the potato monoculture in Europe and the French 75-millimeter artillery piece. He warns that our obsession with efficiency can lead to unintended consequences, false positives and negatives, and neglect of real problems. Inspired inefficiency, embracing uncertainty, and desirable difficulty can be alternative approaches to true efficiency. Tenner emphasizes the importance of diversity, safety and redundancy, and the danger of relying solely on algorithms. He concludes that optimal inefficiency may be necessary at times and taking the scenic route can be the best way to move forward.
+
+Detail Summary: 
+00:00:00
+In this section, Edward Tenner explores the paradox of efficiency through the history of the potato. The potato was supposed to be a "miracle" crop in Europe, but the Lumper breed turned out to be so efficient that it led to a monoculture and eventually an Irish famine, where a million people died and two million emigrated. This tragedy serves as a warning that efficiency can have unintended consequences, and our obsession with efficiency can actually make us less efficient. False positives and negatives can result from algorithms, and the pursuit of total efficiency can result in the neglect of real problems and the prolongation of evils that it was meant to solve.
+
+00:05:00
+In this section, the speaker discusses how efficiency can be a trap that prolongs processes instead of shortening them. He uses the example of the French 75-millimeter artillery piece, designed to fire shells every four seconds, and how Germany quickly copied it, leading to trench warfare in World War I. The talk then moves on to the challenges in scaling up physical and chemical inventions, such as batteries, due to the difficulty in manufacturing, which has resulted in a lack of long-lasting smartphone batteries. The speaker proposes "inspired inefficiency" as an alternative approach, with seven facets, including taking the scenic route, getting up from the couch, monetizing mistakes, and embracing uncertainty.
+
+00:10:00
+In this section, the speaker discusses the concept of "desirable difficulty" and how taking notes with a pen and paper, and summarizing information that is presented to us, can lead to more active learning. He also emphasizes the importance of diversity, both in organizations and in nature, and the dangers of relying too heavily on algorithms to screen potential employees. Additionally, the speaker stresses the need for safety through redundancy and human skills, especially in light of recent tragedies like the Boeing 737 Max crashes. Finally, the speaker concludes that true efficiency requires a degree of optimal inefficiency and that sometimes taking a circuitous path may be the best way to move forward.
+
