@@ -1,0 +1,34 @@
+# Summary of Drones, robots, and super sperm – the future of farming | DW Documentary (Farming documentary)
+
+Source: https://youtube.com/watch?v=qwNVNE83Udo
+
+"DW Documentary: Drones, Robots, and Super Sperm - The Future of Farming" explores how digital technology is changing the landscape of farming. In Germany, farmers use technology such as thermometers and drones to optimize crop yields and fight against crop-destroying pests like the corn borer. Technology is also used to optimize cow breeding with machines tracking ancestry, health, milk composition, and feed rations to create the perfect cows for modern milking machines. However, the use of technology in farming also presents challenges, including the high cost of precision-oriented equipment and the ongoing debates about animal welfare in the agricultural industry.
+
+Detail Summary: 
+00:00:00
+In this section, the documentary explores how digital technology is being used to optimize farming practices. An example is shown in the asparagus fields of northern Germany where a thermometer transmits data to guide the smartphone-assisted harvest. A breeder consultant seeks out super sperm to optimize udders for modern milking machines, and a farmer uses drones to distribute pesticides and fight against pests like the corn borer that are destroying crops in the region due to climate change. The experimental technique is non-chemical and involves programming the drone's flight route and altitude and is a precision-oriented and expensive process that requires a lot of trust.
+
+00:05:00
+In this section, the documentary delves into the process of cow breeding and the use of technology in modern dairy farms in Germany. Breeding consultant Johanna Schendel is shown inspecting cows for genetic flaws, such as incorrect leg positioning or undesirable udder and teat placements. The cows' bodies become statistics that determine how well they will work with the milking machines, which run at maximum efficiency to keep up with low milk prices. The herd managers rely heavily on technology to predict the perfect cow by tracking ancestry, health, milk composition, and feed rations. Without the technology, the manager would have to rely on manual labor to milk 500 cows three times a day.
+
+00:10:00
+In this section, we see how technology is being used to help farmers like Hina make better decisions and increase their yield. With the help of a 400 euro thermometer and an app, Hina is able to monitor the temperature of his asparagus crop and get an overview of what's going on. The app also helps him calculate the optimal time to start harvesting. However, technology can only do so much, as Hina still faces challenges with planting his crops for next year. Despite this, Hina remains optimistic and determined to keep his farm going.
+
+00:15:00
+In this section, the documentary highlights the use of high-tech equipment in farming. A GPS tracker costing €200,000 drives a tractor across the field at 0.2 km/hour, with real-time positioning accurate to two centimeters. Additionally, a drone is used for spreading a biological pesticide developed to fight off the corn borer pest without the use of chemicals. The pesticide uses an old natural remedy, the Newman wasp, to destroy the pest’s offspring. However, flying the drone requires specialized training and precision since the Newman wasp takes four to nine days to develop, creating a small window for the parasites to parasitize the pest’s egg.
+
+00:20:00
+In this section, advancements in technology in the agricultural sector are highlighted. Specifically, Stephan selects sperm from the bulls Bonham and Sinclair to create the perfect dairy cows, while Bernd checks for pests with a light trap and Maya scrambles to prepare for the corn borer. Meanwhile, Heine uses machines to assist with the harvest, including Asparagus Spin, which lifts and transports the spears, and a sorting machine that can scan and sort a thousand spears per minute. He also invested in an asparagus peeling machine, which has become a necessity as 80% of customers prefer their asparagus peeled. While technology is providing assistance, Heine is constantly looking for ways to reduce staff costs, as customers are unwilling to pay more than 12 euros per kilo of asparagus.
+
+00:25:00
+In this section, the documentary explores how technology is revolutionizing the breeding of cows, with breeding consultant Johanna analyzing data to meet the demands of herd managers. By optimizing cows through pairing them with the perfect bull, she can compensate for any deficiencies and boost healthy traits. However, the challenges of technology are also highlighted, as the drone used to survey the cows' movements encounters technical problems, leading to Burned failing his first assignment due to  equipment issues. Despite these challenges, the documentary emphasizes the importance of technology in the breeding industry, with valuable bulls such as Bonham selling one million portions of sperm a year worldwide.
+
+00:30:00
+In this section, the documentary looks at how genetic material from bulls is collected and then ordered by farmers in a catalogue. Bonham, a bull who has proven his worth due to his hereditary traits, has his sperm collected and delivered to a nearby lab. His sperm is then tested for density and activity, and the most viable portions are separated and sold to herd managers. The genetic material is then categorized based on traits that will help the offspring adapt to human-designed machinery, and can be ordered from a catalogue. Meanwhile, on a family farm in Lower Saxony, farmer Heine Bartels wakes up early to deliver asparagus to local supermarkets, and deals with the pressures of meeting demand and low prices.
+
+00:35:00
+In this section, the documentary presents the use of artificial insemination in farming, which involves transporting rare bull sperm worth 120 euros each. Inseminator Roland Henoch explains that it often takes several attempts and portions of sperm to inseminate a cow successfully. The process uses sensors that capture the cows' movements to determine the optimal time for insemination. The practice has been criticized for not letting the animals have natural mating experiences. However, farmers argue that breeding animals to fit their needs is necessary for profit and efficiency. The debate about animal welfare in the agricultural industry is ongoing.
+
+00:40:00
+In this section, a farmer named Bernd uses drones to drop balls of predatory insects on his corn fields to keep pests at bay. He believes in fighting nature with nature, and by using drones to do the work, he can accomplish in a few minutes what would have taken hours for a person. Although Bernd's innovation is impressive, the final say will always be left up to Mother Nature as the drought destroyed most of his current harvest.
+

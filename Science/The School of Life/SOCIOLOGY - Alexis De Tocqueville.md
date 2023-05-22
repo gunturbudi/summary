@@ -1,0 +1,13 @@
+# Summary of SOCIOLOGY - Alexis De Tocqueville
+
+Source: https://youtube.com/watch?v=Rzr3AOtFA8o
+
+Alexis de Tocqueville believed that democracy was the future of the world, but he noticed five problematic and darker aspects of it. Tocqueville believed that the Americans he met had an oppressively flat way of judging each other based on making money through hard work. He also noticed that democracy can easily create its own specialized type of tyranny, that of the majority, which demonizes any assertion of difference and has an aggressive leveling instinct. Additionally, Tocqueville was disturbed by the way Americans had no distinction and refused to think anyone could be better than them, which encouraged an unhelpful refusal to accept any submission. Despite the belief that democracy would encourage citizens to have an open mind, Tocqueville believed that Americans gave up on critical thinking and put their faith in newspapers and so-called common sense.
+
+Detail Summary: 
+00:00:00
+In this section, we learn about Alexis de Tocqueville's thoughts on democracy, particularly in the United States. He believed democracy was the future of the world but noticed five problematic and darker aspects of it. De Tocqueville believed the Americans he met believed making money through hard work was entirely admirable, which created an oppressively flat way for humans to judge each other. He noticed that democracy can easily create its own specialized type of tyranny, that of the majority, that demonizes any assertion of difference and has an aggressive leveling instinct. Additionally, de Tocqueville was disturbed by the way Americans had no distinction and refused to think anyone could be better than them, which encouraged an unhelpful refusal to accept any submission.
+
+00:05:00
+In this section, the video discusses Alexis de Tocqueville's view on democracy and America. Tocqueville believed that some people in society are wiser, more intelligent, kinder, or more mature than others, and should be listened to with special attention. However, democracy was thought to be biased towards mediocrity. Despite the belief that democracy would encourage citizens to have an open mind, Tocqueville came to the opposite conclusion. Americans simply gave up on critical thinking and put their faith in newspapers and so-called common sense. Furthermore, as this was a commercial society, Americans were very conscious of not wanting to step too far out of line with their neighbors who might also be customers. Although Tocqueville said a lot of grim things about democracy and America, he wasn't anti-democratic or anti-American, he was just trying to show why living in a democracy could, in some key ways, be quite annoying and frustrating.
+
